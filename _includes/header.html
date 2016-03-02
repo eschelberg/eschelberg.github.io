@@ -1,0 +1,21 @@
+<header class="site-header">
+  <h1><a href="/">Eschelberg</a></h1>
+  {% assign url_parts = page.url | split: '/' %}
+  {% assign url_root = url_parts[1] %}
+  {% assign pages = site.pages | reverse %}
+  <ul>
+  {% for node in pages %}
+    {% assign node_url_parts = node.url | split: '/' %}
+    {% assign node_url_parts_size = node_url_parts | size %}
+    {% assign filename = node_url_parts | last %}
+    {% assign node_url = node.url | replace: filename %}
+    {% assign node_root = node_url_parts[1] %}
+    {% if node_url_parts_size == 3 and filename == 'index.html' %}
+      <li {% if url_root == node_root %}class="active"{% endif %}><a href='{{node_url}}'>
+        {{node.title}}
+    </a></li>
+    {% endif %}
+  {% endfor %}
+  </ul>
+
+</header>

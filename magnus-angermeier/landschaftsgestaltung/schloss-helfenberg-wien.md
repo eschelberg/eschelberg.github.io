@@ -1,0 +1,17 @@
+---
+title: Schloß Neugebäude Wien
+
+layout: page
+categories: Magnus Angermeier
+tags: Landschaftsgestaltung und Architektur
+updated: 2009-12-07
+images:
+ - files/Fassade.N.jpg
+ - files/Merian01.1_1.jpg
+ - files/NG.A4.P.4.jpg
+ - files/NG.A3.P.7_0.jpg
+---
+
+Im Auftrag des Vereins zur Revitalisierung des Schlosses Neugebäude entstand 2005 das Konzept zur Landschaftsplanung und Freiflächengestaltung von Magnus Angermeier.
+
+Die Arbeit wurde veröffentlicht in der Zeitschrift "ARX Burgen und Schlösser in Bayern, Österreich und Südtirol" Heft 2/2005. Sie ist auch zu finden auf [www.schlossneugebaeude.at/ngneu/l/01.htm](http://www.schlossneugebaeude.at/ngneu/l/01.htm)

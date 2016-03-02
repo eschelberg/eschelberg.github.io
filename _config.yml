@@ -1,0 +1,10 @@
+# Site settings
+title: Eschelberg
+email: magnus@eschelberg.net
+description: > # this means to ignore newlines until "baseurl:"
+  2003 - 2016
+baseurl: "" # the subpath of your site, e.g. /blog/
+url: "http://eschelberg.net" # the base hostname & protocol for your site
+
+# Build settings
+markdown: kramdown
