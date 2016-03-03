@@ -2,7 +2,7 @@
   <h1><a href="/">Eschelberg</a></h1>
   {% assign url_parts = page.url | split: '/' %}
   {% assign url_root = url_parts[1] %}
-  {% assign pages = site.pages | reverse %}
+  {% assign pages = site.pages | sort:"weight" %}
   <ul>
   {% for node in pages %}
     {% assign node_url_parts = node.url | split: '/' %}

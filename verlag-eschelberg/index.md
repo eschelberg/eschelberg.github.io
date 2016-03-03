@@ -1,6 +1,7 @@
 ---
 title: Verlag Eschelberg
 layout: page
+weight: 3
 ---
 
 Der Verlag Escherlberg wurd ... gegründet. 
