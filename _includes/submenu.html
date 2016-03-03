@@ -1,20 +1,28 @@
 {% assign url_parts = page.url | split: '/' %}
 {% assign url_parts_size = url_parts | size %}
-{% assign rm = url_parts | last %}
-{% assign base_url = page.url | replace: rm %}
+{% assign base_url = page.url %}
+{% assign url_root = url_parts | first %}
+{% if base_url contains ".html" %}
+  {% assign rm = url_parts | last %}
+  {% assign base_url = base_url | remove: rm %}
+{% endif %}
 
-{% if url_parts_size > 2%}
-{% assign pages = site.pages | reverse %}
+{% if url_parts_size != 0 %}
+{% assign pages = site.pages | sort: "url" | reverse %}
 <ul class="submenu">
 {% for node in pages %}
-  {% if node.url contains base_url %}
+  {% if node.url contains base_url and base_url != node.url %}
     {% assign node_url_parts = node.url | split: '/' %}
     {% assign node_url_parts_size = node_url_parts | size %}
     {% assign filename = node_url_parts | last %}
-    {% if url_parts_size == node_url_parts_size and filename != 'index.html'%}
-        {% include submenu-item.html %}
-    {% elsif url_parts_size < node_url_parts_size and filename == 'index.html'%}
-        {% include submenu-item.html %}
+    
+    {% if url_parts_size <= node_url_parts_size %}
+      {% assign test_url = base_url | append: filename %}
+      {% unless node.url contains ".html" %}
+          {% include submenu-item.html %}
+      {% elsif test_url == node.url %}
+          {% include submenu-item.html %}
+      {% endunless %}
     {% endif %}
   {% endif %}
 {% endfor %}
