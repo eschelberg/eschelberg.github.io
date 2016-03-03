@@ -40,6 +40,19 @@
     }
 }
 
+@include media-query($on-laptop) {
+    .site-header {
+        ul {
+            position: auto;
+            li {
+                display: block;
+                margin-top: 20px;
+            }
+        }
+    }
+
+}
+
 .page-content {
     width: 640px;
     overflow: hidden;
@@ -62,6 +75,17 @@
             text-decoration: none;
             background-color: #EFEFEF;
         }
+    }
+
+}
+
+@include media-query($on-palm) {
+    .page-content {
+        width: 100%;
+    }
+    .sub-nav {
+        float: none;
+        width: 100%;
     }
 
 }
