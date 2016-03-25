@@ -6,6 +6,24 @@ tags: Öffentlicher Raum
 updated: 2008-12-29
 ---
 
+### Einheit von Mensch und Natur
+
+Die Grundabsicht meiner Arbeiten ist immer wieder der Hinweis auf die Einheit von Mensch und Natur. Nur wenn und solange sich der Mensch als Teil der Natur begreift kann er Teil haben am Leben der Natur. Wenn der Mensch jedoch sich die Natur untertan macht, sie beherrscht oder gar vergewaltigt, sägt er an dem Ast, auf welchem er sitzt.  
+Menschenwerk, das ins Dasein tritt ist immer eine Offenbarung des Mythos, des mythischen Geschehens. So ist auch meine Skulptur immer eine Beschwörung des lebenserhaltenden Mythos. Es ist dies die Energie, welche die europäische Kulturlandschaft geschaffen hat.
+
+### Magie von Form und Raum
+
+Die Grundfrage, welche sich mir in allen Arbeiten stellt, ist die Frage nach dem Verhältnis zwischen Körper, Seele und Geist. Denn nur in einer ausgewogenen Wechselbeziehung können diese drei Grundelemente unseres Seins in bestmöglicher Weise zum Ausdruck und zur Wirkung kommen. Eben diese Wirkung ist die Magie, welche das Leben in wechselnden Richtungen durchflutet und durchpulst. Diese Magie ist der Herzschlag des Lebens.
+
+### Materialgerechtigkeit und Maßstäblichkeit
+
+Diese Magie ist nicht nur eine optische, sondern in viel höherem Maße eine Funktion der materiellen und immateriellen Strahlung der Materie. Deshalb ist die Wahl des Materials und dessen jeweiligen Ausdrucksmöglichkeiten eine wesentliche. Dies gilt vorrangig für jede Skulptur, aber auch für die gesamte Umwelt des Menschen sollte es gelten. (Nur leider ist davon - wenn wir die heutigen Städte und Behausungen der Menschen betrachten - meist nicht viel zu sehen.)  
+Der zweite wichtige Aspekt ist die Maßstäblichkeit einer Skulptur. Hier ist es deren wichtigste Aufgabe, zwischen dem Raum (selbst wenn er monumentalistisch ist) und den Menschen und deren Maßen und Proportionen eine effiziente Verbindung herzustellen.  
+Materialität, d. h. Materialstrahlung und Proportion sind die entscheidenden Kriterien für die magische Wirkung einer Skulptur.  
+
+### Thematischer- und Ortsbezug
+
+Diesen Kriterien zu dienen war für mich immer der vorrangige Leitfaden für meine Arbeit. Dabei ging es mir nicht darum, einen einzigartigen Stil, eine „Marke“ zu kreiren. Die spezifische Eigenart der jeweiligen Aufgabe (nach Thema, Charakter des Ortes und Raumes, Wünschen und Erfordernissen des Auftraggebers, …) bildete die Grundlage für meine Skulpturen. Daß dies eine stilgeschichtliche Vielfalt (von der klassischen Figürlichkeit bis zur postmodernen Konzeptionaltät) erzeugt ist unausweichlich. Trotzdem glaube ich, in allen meinen skulpturalen Äußerungen eine grundsätzliche Charakteristik und Prägnanz persönlicher Handschrift zu finden. Ich kann nur hoffen, daß dies auch anderen Betrachtern gelingt...
 
 ## Irschenberg Autobahnraststätte
 
@@ -133,15 +151,6 @@ Die Skulptur „Lichtring“, welche aus Stahlrohren geschweißt wurde, kann auc
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/MA 091.jpg)
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/MA 092.jpg)
 
-
-## Stift Schlägl • Kloster im Landschaftspark
-
-Für das Stift Schlägl entstand 2008/09 die landschaftsplanerische Arbeit: 
-“Stift Schlägl • Kloster im Landschaftspark” (Grundlagen, Analyse, Gestaltungskonzept, Vision)
-
-![Stift Schlägl](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Vischer 0.jpg)
-![Stift Schlägl](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Vis.ges_.2.2.-1000.jpg)
-![Stift Schlägl](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Vis.ges_.1.0.-5000.jpg)
 
 ## Gesamtschule Lenzing Innenraumgestaltung 2012
 

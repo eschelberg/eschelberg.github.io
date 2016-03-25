@@ -4,9 +4,7 @@ layout: page
 weight: 1
 ---
 
-Seit 200_ finden jeden zweiten Freitag im Gartenatelier Milongas statt.
-
-...
+Seit 2003 finden jeden zweiten Freitag im Gartenatelier Milongas statt.
 
 ## Termine
 
