@@ -5,10 +5,10 @@ layout: page
 tags: Landschaftsgestaltung und Architektur
 updated: 2009-01-04
 images:
- - files/hbg 3. 024_20.jpg
- - files/hbg 8. Tom08_0.jpg
- - files/hbg 6. 038_34_0.jpg
- - files/hbg 7. 035_31.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/hbg 3. 024_20.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/hbg 8. Tom08_0.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/hbg 6. 038_34_0.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/hbg 7. 035_31.jpg
 ---
 
 Für die Gartenanlagen des Schlosses Helfenberg war ich von 1999 - 2001 in den Bereichen Konzept, Planung, Bauleitung an folgenden Projekten tätig:

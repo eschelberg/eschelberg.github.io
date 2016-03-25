@@ -2,7 +2,7 @@
 title: Bach auf Reisen - Cembalokonzert von Johannes Bogner
 layout: page
 images:
-    - files/sentiments 1_0.jpg
+    - files/kunstverein/sentiments 1_0.jpg
 ---
 
 Am Sonntag, dem 16. Jänner 2011 um 16°° Uhr spielt Johannes Maria Bogner ein Cembalokonzert mit dem Titel “Bach auf Reisen” im Atelier Eschelberg.

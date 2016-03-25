@@ -2,7 +2,7 @@
 title: Berufsbild
 layout: page
 images:
-  - files/T.Abrazo%20840_0.jpg
+  - files/T.Abrazo%20840.jpg
 ---
 
 Als zu Beginn der Neuzeit, in der Mitte des nun zu Ende gehenden Jahrtausends, die Komplexität der meschlichen Tätigkeiten und Berufsbilder rasant zunahm, gab es in Italien an Fürstenhöfen und in Künstlerkreisen Gruppen, die den “universellen Menschen” forderten und auch verwirklichten. Namen wie die der Medici, Gonzaga, Orsini, …, aber auch Michelangelo, Leonardo, Ammanati, Giambologna, u.v.a. stehen für diese Bewegung.

@@ -4,7 +4,7 @@ categories: Verlag Eschelberg
 updated: 2013-03-31
 layout: page
 images:
- - files/TZ Titel-1.jpg
+ - files/verlag-eschelberg/TZ Titel-1.jpg
 Angehängte Dateien: Tango Zarathustra Bildtext
 ---
 
@@ -15,3 +15,5 @@ Der gesamte Text kann im Anhang heruntergeladen werden!
 
 Eschelberg 2011 © Magnus Angermeier
 Verlag Eschelberg, ISBN 978-3-9500997-2-7
+
+[Download als PDF](/files/verlag-eschelberg/Tango_Zarathustra_Bildtext.pdf)

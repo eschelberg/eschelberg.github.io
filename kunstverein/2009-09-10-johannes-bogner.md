@@ -2,7 +2,7 @@
 title: Konzert von Johannes Bogner
 layout: page
 images:
-    - files/Poster webs.jpg
+    - files/kunstverein/Poster webs.jpg
 ---
 
 Der Kunstverein Eschelberg lädt ein zum Konzert am Donnerstag, dem **10. September 2009 um 21°°** Uhr im Atelier Eschelberg:

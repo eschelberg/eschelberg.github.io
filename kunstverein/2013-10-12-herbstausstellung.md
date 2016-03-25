@@ -2,8 +2,8 @@
 title: Herbstausstellung 2013
 layout: page
 images:
-    - files/website 1950.1.jpg
-    - files/webs.jpg
+    - files/kunstverein/website 1950.1.jpg
+    - files/kunstverein/webs.jpg
 ---
 
 Herbstausstellung des Kunstvereins Eschelberg: Bilder und Skulpturen von Gerhard Doppelhammer und Magnus Angermeier

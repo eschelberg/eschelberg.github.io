@@ -6,10 +6,10 @@ categories: Magnus Angermeier
 tags: Landschaftsgestaltung und Architektur
 updated: 2009-12-07
 images:
- - files/Fassade.N.jpg
- - files/Merian01.1_1.jpg
- - files/NG.A4.P.4.jpg
- - files/NG.A3.P.7_0.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/Fassade.N.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/Merian01.1_1.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/NG.A4.P.4.jpg
+ - files/magnus-angermeier/landschaftsgestaltung/NG.A3.P.7_0.jpg
 ---
 
 Im Auftrag des Vereins zur Revitalisierung des Schlosses Neugebäude entstand 2005 das Konzept zur Landschaftsplanung und Freiflächengestaltung von Magnus Angermeier.

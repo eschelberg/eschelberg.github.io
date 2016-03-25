@@ -2,7 +2,7 @@
 title: “Tango bewegt” - Photographien von Günther Magerl
 layout: page
 images:
-    - files/Einl.1.jpg
+    - files/kunstverein/Einl.1.jpg
 ---
 
 Im Rahmen der VI. Eschelberger Tangotage 2010 zeigt die Galerie des Kunstvereins Eschelberg Photographien von Günther Magerl aus den Jahren 2009/10.

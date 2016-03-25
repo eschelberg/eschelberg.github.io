@@ -2,7 +2,7 @@
 title: Mich rührt so sehr... - Rainer Maria Rilke Texte und Songs
 layout: page
 images:
-    - files/Rilke_0.jpg
+    - files/kunstverein/Rilke_0.jpg
 ---
 
 - Monika Holzmann, Freistadt: Rezitation und Gesang

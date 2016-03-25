@@ -2,8 +2,8 @@
 title: Liebe, Tod und Tango
 layout: page
 Updated date: 2013-01-24
-Pfad: sites/eschelberg.net/files/Printtitel.jpg
-Angehängte Dateien: LTT Bildtext 1.pdf
+images:
+    - files/verlag-eschelberg/Printtitel.jpg
 ---
 
 Essay; Magnus Angermeier
@@ -13,3 +13,5 @@ Der gesamte Text kann im Anhang heruntergeladen werden!
 
 Eschelberg 2006 © Magnus Angermeier
 Verlag Eschelberg, ISBN 3-9500997-1-9
+
+[Download als PDF](/files/verlag-eschelberg/LTT Bildtext 1.pdf)

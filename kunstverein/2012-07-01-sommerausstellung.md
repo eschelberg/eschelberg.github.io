@@ -2,7 +2,7 @@
 title: Sommerausstellung 2012
 layout: page
 images:
-  - files/Poster website.jpg
+  - files/kunstverein/Poster website.jpg
 ---
 
 Sommerausstellung des Kunstvereins Eschelberg: Bilder und Skulpturen von Gerhard Doppelhammer und  Magnus Angermeier

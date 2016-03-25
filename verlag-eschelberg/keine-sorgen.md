@@ -2,7 +2,8 @@
 title: Keine Sorgen
 layout: page
 Updated date: 2013-01-07
-Pfad: sites/eschelberg.net/files/keine_sorgen.png
+images:
+    - files/verlag-eschelberg/keine_sorgen.jpg
 ---
 
 Dichte Texte & Holzschnitte von Magnus Angermeier;
