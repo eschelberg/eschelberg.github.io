@@ -23,5 +23,5 @@ Am Freitag, dem 24. Juni 2016 findet ab 21°° Uhr eine Milonga im Gartenatelier
 ## Übernachtungsmöglichkeiten
 
 Der Gasthof Reingruber hat derzeit geschlossen. Übernachtungsmöglichkeiten in Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: [http://tourismus.ottensheim.at/](http://tourismus.ottensheim.at/)
-
+![Titel](/files/tango/TB12_249.jpg)
 
