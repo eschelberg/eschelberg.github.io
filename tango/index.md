@@ -17,7 +17,7 @@ Am Freitag, dem 24. Juni 2016 findet ab 21°° Uhr eine Milonga im Gartenatelier
 
 ### 8. Juli 2016: Freitagsmilonga
 
-##Am Freitag, dem 8- Juli 2016 findet ab 21°° Uhr eine Milonga im Gartenatelier Eschelberg statt.
+Am Freitag, dem 8- Juli 2016 findet ab 21°° Uhr eine Milonga im Gartenatelier Eschelberg statt.
 
 
 ## Übernachtungsmöglichkeiten
