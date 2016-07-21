@@ -11,13 +11,20 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas zerhackt.
 
 ## Termine
 
-### 24. Juni 2016: Freitagsmilonga
+### 5. August 2016: Freitagsmilonga
 
-Am Freitag, dem 24. Juni 2016 findet ab 21°° Uhr eine Milonga im Gartenatelier Eschelberg statt.
 
-### 8. Juli 2016: Freitagsmilonga
+Freitagsmilonga am 5. August 2016
+5. August 2016
 
-Am Freitag, dem 8- Juli 2016 findet ab 21°° Uhr eine Milonga im Gartenatelier Eschelberg statt.
+Die nächste Freitagsmilonga im Gartenatelier Eschelberg gibt es am 5. August 2016 ab 21:00 Uhr.
+Bei schönem Wetter grillen wir ab ca. 19:00 Uhr!
+
+### 19. August 2016: Freitagsmilonga
+
+
+Freitagsmilonga im Gartenatelier Eschelberg am 19. August 2016 ab 21:00 Uhr.
+Bei schönem Wetter grillen wir ab ca. 19:00 Uhr!
 
 
 ## Übernachtungsmöglichkeiten
