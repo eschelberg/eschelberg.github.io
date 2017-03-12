@@ -57,6 +57,7 @@
     width: 640px;
     overflow: hidden;
     float: left;
+    box-sizing: border-box;
 }
 
 .sub-nav {
@@ -96,7 +97,8 @@
 .site-footer {
     clear: left;
     border-top: 1px solid $grey-color-light;
-    padding: $spacing-unit 0;
+    background-color: $grey-color-lighter;
+    padding: $spacing-unit;
 }
 
 .footer-heading {
