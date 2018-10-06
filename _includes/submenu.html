@@ -7,7 +7,7 @@
   {% assign base_url = base_url | remove: rm %}
 {% endif %}
 
-{% if url_parts_size != 0 %}
+{% if url_parts_size > 1%}
 {% assign pages = site.pages | sort: "url" | reverse %}
 <ul class="submenu">
 {% for node in pages %}
