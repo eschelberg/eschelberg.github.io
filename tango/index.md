@@ -11,27 +11,18 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
-### 5. August 2016: Freitagsmilonga
+### 12. Oktober 2018: Freitagsmilonga
 
-
-Freitagsmilonga am 5. August 2016
-5. August 2016
-
-Die nächste Freitagsmilonga im Gartenatelier Eschelberg gibt es am 5. August 2016 ab 21:00 Uhr.
-Bei schönem Wetter grillen wir ab ca. 19:00 Uhr!
-
-### 19. August 2016: Freitagsmilonga
-
-
-Freitagsmilonga im Gartenatelier Eschelberg am 19. August 2016 ab 21:00 Uhr.
-Bei schönem Wetter grillen wir ab ca. 19:00 Uhr!
-
+Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 12. Oktober ab 21°° Uhr.
 
 ## Übernachtungsmöglichkeiten
 
-Der Gasthof Reingruber hat derzeit geschlossen. Übernachtungsmöglichkeiten in Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: [http://tourismus.ottensheim.at/](http://tourismus.ottensheim.at/)
+Im ehemaligen Gasthof Reingruber bietet der neue Besitzer Zimmer und Wohnungen an unter: www.airbnb.at/rooms/20770901?location=eschelberg. oder: office@zimmer-eschelberg.at oder: tel. 06608080802
 
- Es gibt auch eine begrenzte Übernachtungsmöglichkeit im Schloß Eschelberg.
+Übernachtungsmöglichkeiten in 
+Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: http://tourismus.ottensheim.at/
+
+Es gibt auch eine begrenzte Übernachtungsmöglichkeit im Schloß Eschelberg.
 Info unter:
 http://schlossnaechtigung.simplesite.com
 Harald Koisser
