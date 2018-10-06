@@ -4,6 +4,4 @@ layout: page
 weight: 3
 ---
 
-Der Verlag Eschelberg wurd ... gegründet. 
-
-In der Liste rechts gibt es weitere Informationen zu den bisher erschienen Titeln.
+Der Verlag Eschelberg wurde 2017 aufeglöst, die bisher erschienen Titel sind weiterhin hier verfügbar.
