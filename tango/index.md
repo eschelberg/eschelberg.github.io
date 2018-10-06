@@ -32,4 +32,4 @@ http://schlossnaechtigung.simplesite.com
 Harald Koisser
 Schloss Eschelberg • Eschelberg 2  •  A-4112 St. Gotthard •  www.schloss-eschelberg.at Mobil: +43 699 1 7107707 • harald@koisser.at
 
-![Titel](/files/tango/TB12_249.jpg)
+![Titel](/files/tango/TB12_248.jpg)
