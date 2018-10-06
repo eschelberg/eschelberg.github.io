@@ -1,3 +1,7 @@
+---
+title: Links
+---
+
 ## Tangoclubs
 
 * Tango Argentino in Linz http://www.tango-linz.at
