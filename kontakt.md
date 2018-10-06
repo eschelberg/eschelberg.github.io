@@ -1,6 +1,6 @@
 ---
 title: Kontakt
-layout: page
+layout: default
 Updated date: 2009-04-19
 ---
 
