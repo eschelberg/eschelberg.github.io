@@ -23,8 +23,9 @@ in der Zeitschrift ARX - Burgen und Schlösser in Bayern, Österreich und Südti
 
 ## „Im Zeichen von Jupiter und Saturn“
 Revitalisierung des Schlosses Neugebäude in Wien-Simmering – Konzept Landschaftsplanung und Freiflächengestaltung 
-in der Zeitschrift ARX – Burgen und Schlösser in Bayern, Österreich und Südtirol 2/2005 und
-[www.schlossneugebaeude.at](http://www.schlossneugebaeude.at/) , Geschichte / Konzept
+in der Zeitschrift ARX – Burgen und Schlösser in Bayern, Österreich und Südtirol 2/2005, Geschichte / Konzept.
+
+[Download PDF](/files/magnus-angermeier/landschaftsgestaltung/Neugebaude_Bildtext.pdf)
 
 ## „Liebe, Tod und Tango“
 
