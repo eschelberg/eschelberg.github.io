@@ -1,4 +1,4 @@
 source 'https://rubygems.org'
 
-gem 'jekyll', '~> 3.4.2'
+gem 'jekyll', '~> 3.6.3'
 gem 'jekyll-admin', group: :jekyll_plugins
