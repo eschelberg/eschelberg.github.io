@@ -15,6 +15,10 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 12. Oktober ab 21°° Uhr.
 
+### 26. Oktober 2018: Freitagsmilonga
+
+Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 26. Oktober ab 21°° Uhr.
+
 ## Übernachtungsmöglichkeiten
 
 Im ehemaligen Gasthof Reingruber bietet der neue Besitzer Zimmer und Wohnungen an unter: www.airbnb.at/rooms/20770901?location=eschelberg. oder: office@zimmer-eschelberg.at oder: tel. 06608080802
