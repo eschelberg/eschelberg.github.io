@@ -168,17 +168,17 @@ In der Folge entstanden dann zwei große Bilder (Acryl auf Jute auf Hartfaser) f
 
 
 ## Österreichs Trümmerfrauen 2018 
-Denkmal auf der Mölker Bastei in Wien
+### Denkmal auf der Mölker Bastei in Wien
 
-## Das Denkmal
+### Das Denkmal
 Historisch und weltanschaulich ergibt sich aus der Position des Denkmals hinter, das heißt im Schatten des Liebenbergdenkmals, welches ja ein Siegesdenkmal ist, eine Spannung, welche die geistige Auseinandersetzung mit dem Themenkreis Krieg, Sieg und Niederlage fordert. Das Denkmal weist somit über sein ursprüngliches, begrenztes Thema, die Würdigung der Leistung der Trümmerfrauen Ende der 1940 iger Jahre, hinaus in den Bereich der Weltgeschichte und der Philosophie. Dies ist auch der Grund, warum ich den Text Hölderlins hier zitiere:
 „Wo aber Gefahr ist, wächst 
 das Rettende auch“ 
 Nicht ein Arbeiterdenkmal soll hier einen möglicherweise fraglichen Heroismus feiern. Vielmehr geht es angesichts der Wechselfälle, in die das Schicksal uns stellt, um die Besinnung auf das Wesentliche. Hinter der Siegessäule im Vordergrund ver- oder entbirgt sich im Hintergrund der Gedanke der Bewahrung des Lebens, auch in der totalen Niederlage, im Untergang.
-## Die Skulptur:
+### Die Skulptur:
 Eine meiner ersten Assoziationen zu einer sitzenden Frauengestalt und der Thematik der Trümmerfrauen, welche sich durch den damals neuen Standort an der Mölker Bastei ergab, war Al-brecht Dürers Meisterstich “Melencolia I“. Mit dieser Gestalt hatte ich mich bereits anläßlich der Grundlagenplanung für das Schloß Neugebäude in Wien Simmering 2005 eingehend beschäftigt. Es gibt zu ihr auch umfangreiche Literatur…
 Bei der Umsetzung diess Bildes der Melancholie begegnete mir das Modell der „Badenden“, welche ich Mitte der Neunziger Jahre für eine Brunnenanlage entworfen hatte. Je länger ich mich mit den beiden Modellen beschäftigte, um so klarer wurde mir, daß eine skulpturale Umsetzung der Dürer‘schen Gestalt aus verschiedenen Gründen nicht wirklich in das Thema paßte, während meine Badende die wichtigsten Anforderungen, die ich an die Gestalt mir vorstellte, erfüllte:
-## Das Mahnmal
+### Das Mahnmal
 Gerade die partielle Nacktheit der Figur ist ein eindeutiger Hinweis darauf, daß sie keine Trümmerfrau darstellt. Es ist dies das Zeichen dafür, daß es sich um eine Allegorie, eine Genie handelt, wie wir sie von Gemälden und Skulpturen aus Kirchen und Palästen kennen. Eine Allegorie ist die übertragende, bildliche Darstellung eines Wesenszuges , einer Tugend, einer virtuellen Eigenschaft, - hier, der Weiblichkeit.
 Genau das sollte die Gestalt für das Denkmal sein. Denn erst dadurch geht das Denkmal über seine Aufgabe, als Denkmal an etwas Vergangenes zu erinnern, hinaus: Es wird zum Mahnmal für unsere Gegenwart und Zukunft. Und das stellte für mich die Bedingung dar unter welcher ein solches „Denkmal“ - nämlich als „Mahnmal zum Frieden“ - sinnvoll und wirksam werden kann.
 
