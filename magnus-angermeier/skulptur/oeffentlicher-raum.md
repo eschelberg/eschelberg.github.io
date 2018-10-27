@@ -182,4 +182,4 @@ Bei der Umsetzung diess Bildes der Melancholie begegnete mir das Modell der „B
 Gerade die partielle Nacktheit der Figur ist ein eindeutiger Hinweis darauf, daß sie keine Trümmerfrau darstellt. Es ist dies das Zeichen dafür, daß es sich um eine Allegorie, eine Genie handelt, wie wir sie von Gemälden und Skulpturen aus Kirchen und Palästen kennen. Eine Allegorie ist die übertragende, bildliche Darstellung eines Wesenszuges , einer Tugend, einer virtuellen Eigenschaft, - hier, der Weiblichkeit.
 Genau das sollte die Gestalt für das Denkmal sein. Denn erst dadurch geht das Denkmal über seine Aufgabe, als Denkmal an etwas Vergangenes zu erinnern, hinaus: Es wird zum Mahnmal für unsere Gegenwart und Zukunft. Und das stellte für mich die Bedingung dar unter welcher ein solches „Denkmal“ - nämlich als „Mahnmal zum Frieden“ - sinnvoll und wirksam werden kann.
 
-![Österreichs Trümmerfrauen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Trüm.435.jpg)
+
