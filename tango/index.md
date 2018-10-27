@@ -11,13 +11,13 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
-### 12. Oktober 2018: Freitagsmilonga
+### 9. November 2018: Freitagsmilonga
 
-Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 12. Oktober ab 21°° Uhr.
+Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 9. November ab 21°° Uhr.
 
-### 26. Oktober 2018: Freitagsmilonga
+### 23. November 2018: Freitagsmilonga
 
-Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 26. Oktober ab 21°° Uhr.
+Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 23. November ab 21°° Uhr.
 
 
 ![Titel](/files/tango/TB12_248.jpg)
