@@ -180,14 +180,20 @@ Nicht ein Arbeiterdenkmal soll hier einen möglicherweise fraglichen Heroismus f
 
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.435.jpg)
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/schriftt.vorders.%20514.2.jpg)
-![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/schriftt.%20ru%CC%88cks.512.jpg)
-
 
 ### Die Skulptur:
 Eine meiner ersten Assoziationen zu einer sitzenden Frauengestalt und der Thematik der Trümmerfrauen, welche sich durch den damals neuen Standort an der Mölker Bastei ergab, war Al-brecht Dürers Meisterstich “Melencolia I“. Mit dieser Gestalt hatte ich mich bereits anläßlich der Grundlagenplanung für das Schloß Neugebäude in Wien Simmering 2005 eingehend beschäftigt. Es gibt zu ihr auch umfangreiche Literatur…
-Bei der Umsetzung diess Bildes der Melancholie begegnete mir das Modell der „Badenden“, welche ich Mitte der Neunziger Jahre für eine Brunnenanlage entworfen hatte. Je länger ich mich mit den beiden Modellen beschäftigte, um so klarer wurde mir, daß eine skulpturale Umsetzung der Dürer‘schen Gestalt aus verschiedenen Gründen nicht wirklich in das Thema paßte, während meine Badende die wichtigsten Anforderungen, die ich an die Gestalt mir vorstellte, erfüllte:
+
+![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/3%20Modelle.jpg)
+
+Bei der Umsetzung diess Bildes der Melancholie begegnete mir das Modell der „Badenden“, welche ich Mitte der Neunziger Jahre für eine Brunnenanlage entworfen hatte. Je länger ich mich mit den beiden Modellen beschäftigte, um so klarer wurde mir, daß eine skulpturale Umsetzung der Dürer‘schen Gestalt aus verschiedenen Gründen nicht wirklich in das Thema paßte, während meine Badende die wichtigsten Anforderungen, die ich an die Gestalt mir vorstellte, erfüllte.
+
+![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.491.jpg)
+![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.473.jpg)
+
 ### Das Mahnmal
 Gerade die partielle Nacktheit der Figur ist ein eindeutiger Hinweis darauf, daß sie keine Trümmerfrau darstellt. Es ist dies das Zeichen dafür, daß es sich um eine Allegorie, eine Genie handelt, wie wir sie von Gemälden und Skulpturen aus Kirchen und Palästen kennen. Eine Allegorie ist die übertragende, bildliche Darstellung eines Wesenszuges , einer Tugend, einer virtuellen Eigenschaft, - hier, der Weiblichkeit.
 Genau das sollte die Gestalt für das Denkmal sein. Denn erst dadurch geht das Denkmal über seine Aufgabe, als Denkmal an etwas Vergangenes zu erinnern, hinaus: Es wird zum Mahnmal für unsere Gegenwart und Zukunft. Und das stellte für mich die Bedingung dar unter welcher ein solches „Denkmal“ - nämlich als „Mahnmal zum Frieden“ - sinnvoll und wirksam werden kann.
 
-
+![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/schriftt.%20ru%CC%88cks.512.jpg)
+![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.486.jpg)
