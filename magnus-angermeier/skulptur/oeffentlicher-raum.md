@@ -169,7 +169,6 @@ In der Folge entstanden dann zwei große Bilder (Acryl auf Jute auf Hartfaser) f
 
 ## Österreichs Trümmerfrauen 2018 
 ### Denkmal auf der Mölker Bastei in Wien
-
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Titelseite.jpg)
 
 ### Das Denkmal
