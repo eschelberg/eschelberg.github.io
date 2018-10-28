@@ -178,6 +178,7 @@ Nicht ein Arbeiterdenkmal soll hier einen möglicherweise fraglichen Heroismus f
 
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88m.%20webs./Mod.080.jpg)
 
+
 ### Die Skulptur:
 Eine meiner ersten Assoziationen zu einer sitzenden Frauengestalt und der Thematik der Trümmerfrauen, welche sich durch den damals neuen Standort an der Mölker Bastei ergab, war Al-brecht Dürers Meisterstich “Melencolia I“. Mit dieser Gestalt hatte ich mich bereits anläßlich der Grundlagenplanung für das Schloß Neugebäude in Wien Simmering 2005 eingehend beschäftigt. Es gibt zu ihr auch umfangreiche Literatur…
 Bei der Umsetzung diess Bildes der Melancholie begegnete mir das Modell der „Badenden“, welche ich Mitte der Neunziger Jahre für eine Brunnenanlage entworfen hatte. Je länger ich mich mit den beiden Modellen beschäftigte, um so klarer wurde mir, daß eine skulpturale Umsetzung der Dürer‘schen Gestalt aus verschiedenen Gründen nicht wirklich in das Thema paßte, während meine Badende die wichtigsten Anforderungen, die ich an die Gestalt mir vorstellte, erfüllte:
