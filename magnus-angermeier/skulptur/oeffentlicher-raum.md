@@ -181,7 +181,7 @@ Nicht ein Arbeiterdenkmal soll hier einen möglicherweise fraglichen Heroismus f
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.435.jpg)
 
 ### Die Skulptur:
-Eine meiner ersten Assoziationen zu einer sitzenden Frauengestalt und der Thematik der Trümmerfrauen, welche sich durch den damals neuen Standort an der Mölker Bastei ergab, war Al-brecht Dürers Meisterstich “Melencolia I“. Mit dieser Gestalt hatte ich mich bereits anläßlich der Grundlagenplanung für das Schloß Neugebäude in Wien Simmering 2005 eingehend beschäftigt. Es gibt zu ihr auch umfangreiche Literatur…
+Eine meiner ersten Assoziationen zu einer sitzenden Frauengestalt und der Thematik der Trümmerfrauen, welche sich durch den damals neuen Standort an der Mölker Bastei ergab, war Albrecht Dürers Meisterstich “Melencolia I“. Mit dieser Gestalt hatte ich mich bereits anläßlich der Grundlagenplanung für das Schloß Neugebäude in Wien Simmering 2005 eingehend beschäftigt. Es gibt zu ihr auch umfangreiche Literatur…
 
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/3%20Modelle.jpg)
 
