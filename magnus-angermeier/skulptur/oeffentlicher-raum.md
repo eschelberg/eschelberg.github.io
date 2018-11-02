@@ -187,7 +187,7 @@ Eine meiner ersten Assoziationen zu einer sitzenden Frauengestalt und der Themat
 
 Bei der Umsetzung des Bildes der Melancholie begegnete mir das Modell der „Badenden“, welche ich Mitte der Neunziger Jahre für eine Brunnenanlage entworfen hatte. Je länger ich mich mit den beiden Modellen beschäftigte, um so klarer wurde mir, daß eine skulpturale Umsetzung der Dürer‘schen Gestalt aus verschiedenen Gründen nicht wirklich in das Thema paßte, während meine Badende die wichtigsten Anforderungen, die ich an die Gestalt mir vorstellte, erfüllte.
 
-![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.491.jpg)
+![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88mm.491.JPG)
 ![Denkmal1](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Tru%CC%88mmerfrauen/Tru%CC%88m.473.jpg)
 
 ### Das Mahnmal
