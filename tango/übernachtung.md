@@ -1,5 +1,6 @@
 ---
 title: Übernachtungsmöglichkeiten
+layout: page
 ---
 
 Im ehemaligen Gasthof Reingruber bietet der neue Besitzer Zimmer und Wohnungen an. [Buchen über AirBnB](https://www.airbnb.at/rooms/20770901?location=eschelberg) oder per [email](mailto:office@zimmer-eschelberg.at) oder telefonisch [+43 660 8080802](tel:43-660-8080802)
