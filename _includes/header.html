@@ -9,7 +9,7 @@
     {% assign node_url_parts_size = node_url_parts | size %}
     {% if node_url_parts_size == 2 %}
       {% assign node_root = node_url_parts[1] %}
-      {% unless node.url contains '.html' %}
+      {% unless node.url contains '.' %}
         <li {% if url_root == node_root %}class="active"{% endif %}><a href='{{node.url}}'>
           {{node.title}}
       </a></li>
