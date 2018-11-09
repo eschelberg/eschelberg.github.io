@@ -8,3 +8,12 @@ url: "http://eschelberg.net" # the base hostname & protocol for your site
 
 # Build settings
 markdown: kramdown
+
+repository: eschelberg/eschelberg.github.io
+
+gems:
+- jekyll-github-metadata
+- jekyll-mentions
+- jekyll-redirect-from
+- jekyll-sitemap
+- jemoji
