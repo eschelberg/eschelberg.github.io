@@ -11,13 +11,20 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
-### 9. November 2018: Freitagsmilonga
+### 7. Dezember 2018: Freitagsmilonga
 
-Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 9. November ab 21°° Uhr.
+Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 7. Dezember ab 21°° Uhr.
 
-### 23. November 2018: Freitagsmilonga
+### 21. Dezember 2018: Freitagsmilonga entfällt !!!
 
-Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 23. November ab 21°° Uhr.
+!!! Am 21. Dezember gibt‘s keine Milonga, damit kein Weihnachtsstress entsteht !!!
 
+### 31. Dezember 2018 Silvestermilonga
+
+Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
+Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
+
+Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
+Freiwillige Spendenempfehlung: € 5.- 
 
 ![Titel](/files/tango/TB12_248.jpg)
