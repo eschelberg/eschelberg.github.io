@@ -24,6 +24,9 @@ Die nächste Freitagsmilonga im Atelier Eschelberg gibt’s am Freitag, dem 7. D
 Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
 Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
 
+Musik: 2018 Joachim
+       2019 Magnus
+
 Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
 Freiwillige Spendenempfehlung: € 5.- 
 
