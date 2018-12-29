@@ -37,9 +37,10 @@ Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditione
 Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
 Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
 
-Musik: 2018 Joachim
+Musik: 
+2018 Joachim
 
-       2019 Magnus
+2019 Magnus
        
 Freiwillige Spendenempfehlung: € 5.- 
 
