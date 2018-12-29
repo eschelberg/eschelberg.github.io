@@ -38,6 +38,7 @@ Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges)
 Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
 
 Musik: 
+
 2018 Joachim
 
 2019 Magnus
