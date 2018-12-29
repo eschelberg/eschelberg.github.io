@@ -16,22 +16,28 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ### 31. Dezember 2018 Silvestermilonga
 
-Eine Überraschung!!
+### Überraschung!!
 Es gibt ein Silvesterkonzert am 31. 12. 2018 um 18°° Uhr im Gartenatelier Eschelberg mit:
+
 Winfried Hackl, Blockflöte
 Johannes Maria Bogner, Cembalo
+
 Sie spielen Werke von 
 G. Ph. Telemann und
 J. S. Bach
+
 und weihen damit auch eine neues Cembalo nach Mietke aus der Werkstatt W. Hackl ein.
 
 Danach geht es über in die
-Silvestermilonga 
+
+S### Silvestermilonga 
 Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
 Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
 Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
+
 Musik: 2018 Joachim
        2019 Magnus
+       
 Freiwillige Spendenempfehlung: € 5.- 
 
 
