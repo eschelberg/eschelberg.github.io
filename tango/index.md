@@ -42,12 +42,9 @@ Musik:
 2018 Joachim
 
 2019 Magnus
-       
-Freiwillige Spendenempfehlung: € 5.- 
-
-
 
 Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
+
 Freiwillige Spendenempfehlung: € 5.- 
 
 
