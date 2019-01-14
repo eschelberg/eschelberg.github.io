@@ -11,45 +11,16 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
+### Freitagsmilonga am Freitag, dem 18. Jänner
 
+Liebe Tanguerosas!
 
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 18. Jänner 2019 ab 21°° Uhr.
+Wir freuen uns auf Euren Besuch,
+Magnus und Eva Maria
 
-### 31. Dezember 2018 Silvestermilonga
+### Vorschau Tangotage 2019
 
-### Überraschung!!
-Es gibt ein Silvesterkonzert am 31. 12. 2018 um 18°° Uhr im Gartenatelier Eschelberg mit:
-
-Winfried Hackl, Blockflöte 
-
-Johannes Maria Bogner, Cembalo
-
-Sie spielen Werke von 
-
-G. Ph. Telemann und
-J. S. Bach
-
-und weihen damit auch eine neues Cembalo nach Mietke aus der Werkstatt W. Hackl ein.
-
-Danach geht es über in die
-
-### Silvestermilonga 
-Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
-Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
-Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
-
-Musik: 
-
-2018 Joachim
-
-2019 Magnus
-
-Beginn: Montag, 31. Dezember 2018 um 20°° Uhr – Ende: irgendwann 2019
-
-Freiwillige Spendenempfehlung: € 5.- 
-
-
-### 4. Jänner 2019: Freitagsmilonga entfällt !!!
-
-!!! Die nächste Milonga in Eschelberg gibt's e rst am Freitag, dem 18. Jänner 2019 !!!
+Die XIV. Eschelberger Tangotage werden am Christi Himmelfahrtswochenende vom 30. Mai bis 2. Juni stattfinden.
 
 ![Titel](/files/tango/TB12_248.jpg)
