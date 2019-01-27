@@ -11,11 +11,11 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
-### Freitagsmilonga am Freitag, dem 18. Jänner
+### Freitagsmilonga am Freitag, dem 1.Februar
 
 Liebe Tanguerosas!
 
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 18. Jänner 2019 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 1. Februar 2019 ab 21°° Uhr.
 Wir freuen uns auf Euren Besuch,
 
 Magnus und Eva Maria
