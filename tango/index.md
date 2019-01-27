@@ -11,7 +11,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
-### Freitagsmilonga am Freitag, dem 1.Februar
+### Freitagsmilonga am Freitag, dem 1. Februar
 
 Liebe Tanguerosas!
 
