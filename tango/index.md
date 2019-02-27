@@ -22,7 +22,7 @@ Die  Freitagsmilonga am 1. März müssen wir leider ausfallen lassen. Wir sind i
 Liebe Tanguerosas!
 
 Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 15. März 2019 ab 21°° Uhr.
-Da wird's dann wphl schon frühlingshaft...
+Da wird's dann wohl schon frühlingshaft...
 
 Wir freuen uns auf Euren Besuch,
 
