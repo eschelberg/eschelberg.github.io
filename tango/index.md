@@ -11,17 +11,9 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Termine
 
-### Freitagsmilonga am Freitag, dem 1. März entfällt !!!
-
 Liebe Tanguerosas!
 
-Die  Freitagsmilonga am 1. März müssen wir leider ausfallen lassen. Wir sind immer noch so mit Bronchitis und Erkältung beschäftigt, daß ein Tango nicht möglich ist. - schade ...
-
-### Freitagsmilonga am Freitag, dem 15. März
-
-Liebe Tanguerosas!
-
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 15. März 2019 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 29. März 2019 ab 21°° Uhr.
 Da wird's dann wohl schon frühlingshaft...
 
 Wir freuen uns auf Euren Besuch,
