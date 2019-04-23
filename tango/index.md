@@ -16,7 +16,7 @@ Liebe Tanguerosas!
 Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 26. April 2019 ab 21°° Uhr.
 Der Garten blüht - da gibt's vielleicht auch schon einen neuen Blumenstrauß...
 
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 10. Mai 2019 ab 21°° Uhr.
+Danach gibt's die nächste Milonga im Gartenatelier in Eschelberg am Freitag, dem 10. Mai 2019 ab 21°° Uhr.
 
 Wir freuen uns auf Euren Besuch,
 
