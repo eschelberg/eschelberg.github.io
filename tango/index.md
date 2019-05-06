@@ -22,23 +22,23 @@ Wir freuen uns auf Euren Besuch,
 
 Magnus und Eva Maria
 
-### Eschelberger Tangotage 2019
+### XV. Eschelberger Tangotage 2019
 
 Donnerstag, 30. Mai
-1800	    • Ankunft und gemütliches Beisammensein
-2100	    • Milonga  Musik Joachim
+18:00	    • Ankunft und gemütliches Beisammensein
+21:00	    • Milonga  Musik Joachim
 
 Freitag, 31. Mai				            
-1500 - 1800 • Tango Technik- und Figuren Bazar
-ab 2100	    •  Milonga Musi DJ Soosie
+15:00 - 18:00 • Tango Technik- und Figuren Bazar
+ab 21:00	    •  Milonga Musi DJ Soosie
 
 Samstag, 1. Juni
-1500 - 1800 • Tango Technik- und Figuren Bazar
-2100	    •  Milonga  Musik Magnus
+15:00 - 18:00 • Tango Technik- und Figuren Bazar
+21:00	    •  Milonga  Musik Magnus
 
 Sonntag, 2. Juni
-	    • Tango - Frühschoppen
-	    • Ausklang ...
+• Tango - Frühschoppen
+• Ausklang ...
 
 ### 15 Jahre Anarcho-Tango in Eschelberg!
 
