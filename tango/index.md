@@ -25,18 +25,22 @@ Magnus und Eva Maria
 ### XV. Eschelberger Tangotage 2019
 
 Donnerstag, 30. Mai
+
 18:00	    • Ankunft und gemütliches Beisammensein
 21:00	    • Milonga  Musik Joachim
 
-Freitag, 31. Mai				            
+Freitag, 31. Mail
+
 15:00 - 18:00 • Tango Technik- und Figuren Bazar
 ab 21:00	    •  Milonga Musi DJ Soosie
 
 Samstag, 1. Juni
+
 15:00 - 18:00 • Tango Technik- und Figuren Bazar
 21:00	    •  Milonga  Musik Magnus
 
 Sonntag, 2. Juni
+
 • Tango - Frühschoppen
 • Ausklang ...
 
