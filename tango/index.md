@@ -27,17 +27,17 @@ Magnus und Eva Maria
 Donnerstag, 30. Mai
 
 18:00	    • Ankunft und gemütliches Beisammensein
-21:00	    • Milonga  Musik Joachim
+21:00	    • Milonga - Musik Joachim
 
 Freitag, 31. Mail
 
 15:00 - 18:00 • Tango Technik- und Figuren Bazar
-ab 21:00	    •  Milonga Musi DJ Soosie
+ab 21:00	    •  Milonga - Musik DJ Soosie
 
 Samstag, 1. Juni
 
 15:00 - 18:00 • Tango Technik- und Figuren Bazar
-21:00	    •  Milonga  Musik Magnus
+21:00	    •  Milonga - Musik Magnus
 
 Sonntag, 2. Juni
 
