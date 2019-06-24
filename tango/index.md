@@ -13,10 +13,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 21.Juni 2019 ab 21°° Uhr.
-Sommeranfang - bei schönem Wetter grillen wir ab ca. 18°° Uhr!
-
-### Die Freitagsmilonga am 7. Juni entfällt - wegen der Nähe zu den Tangotagen ! 
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 5. Juli 2019 ab 21°° Uhr.
 
 Wir freuen uns auf Euren Besuch,
 
@@ -31,8 +28,6 @@ Keine Anmeldung - Wer kommt ist da.
 
 Übernachtungsmöglichkeiten in 
 Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
-
-Zum Grillen: Fisch,  Fleisch oder Gemüse nach Belieben mitbringen. Für Getränke (Wein, Wasser, Tee, Kaffee) ist gesorgt.
 
 Freiwilliger Beitrag (Vorschlag): ab € 6.- pro Milonga 
 
