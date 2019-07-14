@@ -13,7 +13,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 5. Juli 2019 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 19. Juli 2019 ab 21°° Uhr.
 
 Wir freuen uns auf Euren Besuch,
 
