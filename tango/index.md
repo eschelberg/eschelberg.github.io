@@ -13,7 +13,10 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 16. August 2019 ab 21°° Uhr.
+## Die Freitagsmilonga am 30. August entfällt!!!
+Wir wünschen Euch allen viel Vergnügen beim Linzer Tangofest!
+
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag, dem 13. September 2019 ab 21°° Uhr.
 
 Wir freuen uns auf Euren Besuch,
 
