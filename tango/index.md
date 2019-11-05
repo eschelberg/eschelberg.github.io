@@ -13,11 +13,13 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s an den Freitagen, 11. und 25. Oktober 2019 ab 21°° Uhr.
+Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s an den Freitagen, 8. und 22. November 2019 ab 21°° Uhr.
 
 Wir freuen uns auf Euren Besuch,
 
-Magnus und Eva Maria
+##Vorankündigung
+
+Auch dieses Jahr feiern wir wieder mit einer Silvestermilonga in's Neue Jahr hinein
 
 
 
@@ -27,8 +29,8 @@ Keine Anmeldung - Wer kommt ist da.
 Übernachtung im Garten (im Zelt) oder
 
 Übernachtungsmöglichkeiten in 
-Im ehemaligen Gasthof Reingruber bietet der neue Besitzer (manchmal !) Zimmer an unter: www.airbnb.at/rooms/20770901?location=eschelberg. oder: office@zimmer-eschelberg.at oder: tel. 06608080802
-Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
+Im ehemaligen Gasthof Reingruber bietet der neue Besitzer (manchmal !) Zimmer an unter: tel. 06608080802
+oder: Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
 
 Freiwilliger Beitrag (Vorschlag): ab € 6.- pro Milonga 
 
