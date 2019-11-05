@@ -17,7 +17,7 @@ Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s an den Freitagen,
 
 Wir freuen uns auf Euren Besuch,
 
-##Vorankündigung
+## Vorankündigung
 
 Auch dieses Jahr feiern wir wieder mit einer Silvestermilonga in's Neue Jahr hinein
 
