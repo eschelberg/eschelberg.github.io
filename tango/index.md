@@ -13,7 +13,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s an den Freitagen, 6. und 20. November 2019 ab 21°° Uhr.
+Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s an den Freitagen, 6. und 20. Dezember 2019 ab 21°° Uhr.
 
 Wir freuen uns auf Euren Besuch,
 
