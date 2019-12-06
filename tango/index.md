@@ -24,7 +24,7 @@ Auch dieses Jahr feiern wir wieder mit einer Silvestermilonga in's Neue Jahr hin
 Keine Anmeldung - Wer kommt ist da.
 
 Übernachtungsmöglichkeiten in 
-Im ehemaligen Gasthof Reingruber bietet der neue Besitzer (manchmal !) Zimmer an unter: tel. 06608080802
+Im ehemaligen Gasthof Reingruber bietet der neue Besitzer (manchmal !) Zimmer an unter: tel. 0664 1205541
 oder: Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
 
 Freiwilliger Beitrag (Vorschlag): ab € 6.- pro Milonga 
