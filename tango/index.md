@@ -12,7 +12,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine
 
 Liebe Tanguerosas!
-Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s am Freitag,dem 20. Dezember 2019 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag,dem 20. Dezember 2019 ab 21°° Uhr.
 
 ## Silvesermilonga
 Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der traditionellen Silvestermilonga in Eschelberg.
