@@ -18,6 +18,7 @@ Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s am Freitag,dem 20
 Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der traditionellen Silvestermilonga in Eschelberg.
 Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
 Übernachtung im Gasthof nebenan: Tel.: 06641205541 (Beschränkte Zimmeranzahl!!!) oder im Iglu im Garten.
+
 Beginn: Dienstag, 31. Dezember 2019 um 20°° Uhr – Ende: irgendwann 2020
 Keine Anmeldung - Wer kommt ist da.
 
