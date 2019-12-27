@@ -151,6 +151,13 @@ Die Skulptur „Lichtring“, welche aus Stahlrohren geschweißt wurde, kann auc
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/MA 091.jpg)
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/MA 092.jpg)
 
+## Gesamtschule Lenzing Fassade 2012
+
+![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/boygirls 506.jpg)
+![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Fass. boygirls 505.jpg)
+![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Fassade 507.jpg)
+![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Jongleure 509.jpg)
+![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Stürmer 530.jpg)
 
 ## Gesamtschule Lenzing Innenraumgestaltung 2012
 
