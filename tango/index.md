@@ -12,17 +12,8 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine
 
 Liebe Tanguerosas!
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag,dem 20. Dezember 2019 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Freitag,dem 17. und dann noch am 31. Jänner 2020 ab 21°° Uhr.
 
-## Silvesermilonga
-Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der traditionellen Silvestermilonga in Eschelberg.
-
-Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
-
-Übernachtung im Gasthof nebenan: Tel.: 06641205541 (Beschränkte Zimmeranzahl!!!) oder im Iglu im Garten.
-
-Beginn: Dienstag, 31. Dezember 2019 um 20°° Uhr – Ende: irgendwann 2020
-Keine Anmeldung - Wer kommt ist da.
 
 ## Vorankündigung
 Die XV. Tangotage Eschelberg 2019 finden vom 11. bis 14. Juni 2020 statt.
