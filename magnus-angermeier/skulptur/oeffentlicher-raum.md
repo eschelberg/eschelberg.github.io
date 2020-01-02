@@ -151,7 +151,17 @@ Die Skulptur „Lichtring“, welche aus Stahlrohren geschweißt wurde, kann auc
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/MA 091.jpg)
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/MA 092.jpg)
 
-## Gesamtschule Lenzing Fassade 2012
+## Gesamtschule Lenzing Reliefskulpturen Fassade 2011
+
+Architektur: Büro Schremmer-Jell, Linz
+Für die Fassade der Gesamtschule Lenzing entstanden 2010/11 mehrere Relieffiguren aus VA-Stahl.
+Die Figuren stellen Kinder in Spiel- und Sportsituationen dar:
+
+• Für die Grundschule – “boygirls” drei Kinder in spielerischen Tanzbewegungen (ca. 3 × 6 m).
+• Für die Gesamtschule – “Jongleure” (ca. 3 × 5 m).
+• Für die Dreifach-Sporthalle – “Stürmer” mit Fußball (ca. 7 × 6 m).
+
+Die Stahlblechfiguren sind gefaltet und freischwebend vor der Fassade montiert. Die Reflexionen des jeweils herrschenden Himmelslichtes wie auch der Farben in der Landschaft bewirken ein immer wechselndes Licht- und Farbenspiel.
 
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/boygirls 506.jpg)
 ![Lichtring Feldkirchen](/files/magnus-angermeier/skulptur/oeffentlicher-raum/Fass. boygirls 505.jpg)
