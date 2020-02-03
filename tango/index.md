@@ -16,7 +16,8 @@ Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Valentinstag, Fr
 
 
 ## Vorankündigungen
-Die XV. Tangotage Eschelberg 2019 finden vom 11. bis 14. Juni 2020 statt.
+Die XV. Tangotage Eschelberg 2019 finden am Fronleichnamswochenende vom 11. bis 14. Juni 2020 statt.
+
 Am Muttertag, Sonntag, dem 10 Mai Präsentieren die "Donauweibchen" - (ich würde eher sagen: -weiber) Monika Holzman (Vocal) mit Angela Dobretsberger (Accordeon) ihr neues Chanson-Programm "Paris Mon Amour" im Atelier Eschelberg.
 
 Übernachtungsmöglichkeiten in 
