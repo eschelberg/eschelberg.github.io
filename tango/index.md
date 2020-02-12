@@ -12,7 +12,8 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine
 
 Liebe Tanguerosas!
-Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Valentinstag, Freitag,dem 14. und dann noch am 28. Februar 2020 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier in Eschelberg gibt’s am Valentinstag, Freitag,dem 14.Februar ab 21°° Uhr.
+Musik: Joachim
 
 
 ## Vorankündigungen
