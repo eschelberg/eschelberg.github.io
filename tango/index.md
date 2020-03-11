@@ -29,4 +29,4 @@ oder: Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, pr
 
 Freiwilliger Beitrag (Vorschlag): ab € 6.- pro Milonga 
 
-![Titel](/files/tango/TB12_248.jpg)
+![Titel](/files/tango/Fuchs 30.jpg)
