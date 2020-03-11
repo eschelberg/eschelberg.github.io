@@ -12,7 +12,11 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine
 
 Liebe Tanguerosas!
-Die nächsten Milongas im Gartenatelier in Eschelberg gibt’s an den Freitagen, dem 13. März und am 27. März ab 21°° Uhr.
+## Die nächste Milonga im Gartenatelier in Eschelberg am Freitag, dem 13. März entfällt !!!
+
+Eigentlich hätte ich gerne eine Corona-Party gemacht, damit der Spuk eher zu Ende ist...
+Da sich der Spuk für gewisse Kreise jedoch sehr bewährt und nun möglichst lange dauern soll, werden Indoorveranstaltungen mit mehr als 100 Teilnehmern mit massiven Geldstrafen bedroht. Deshalb müssen wir die Milongas in Eschelberg vorläufig aussetzen. 
+Wir freuen uns aber wenn's dann wieder einen umso innigeren Tango gibt. (In China sind drei Viertel der "Opfer" schon wieder gesund...
 
 ## Vorankündigungen
 Die XV. Tangotage Eschelberg 2019 finden am Fronleichnamswochenende vom 11. bis 14. Juni 2020 statt.
