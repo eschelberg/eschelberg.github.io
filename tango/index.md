@@ -17,6 +17,7 @@ Liebe Tanguerosas!
 Eigentlich hätte ich gerne eine Corona-Party gemacht, damit der Spuk eher zu Ende ist...
 Da sich der Spuk für gewisse Kreise jedoch sehr bewährt und nun möglichst lange dauern soll, werden Indoorveranstaltungen mit mehr als 100 Teilnehmern mit massiven Geldstrafen bedroht. Deshalb müssen wir die Milongas in Eschelberg vorläufig aussetzen. 
 Wir freuen uns aber wenn's dann wieder einen umso innigeren Tango gibt. (In China sind angeblich drei Viertel der "Opfer" schon wieder gesund...)
+Außerdem sehr interessant zum Thema:https://www.youtube.com/watch?v=hW4qzAPP5pU
 
 ## Vorankündigungen
 Die XV. Tangotage Eschelberg 2019 finden am Fronleichnamswochenende vom 11. bis 14. Juni 2020 statt.
