@@ -34,4 +34,4 @@ Freiwilliger Beitrag (Vorschlag): ab € 6.- pro Milonga
 ![Titel](/files/tango/Fuchs 30.jpg)
 
 
-![Titel](/files/tango/Fuchs 30.jpg)
+![Titel](/files/tango/Widget SB-Book.odt)
