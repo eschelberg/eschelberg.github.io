@@ -16,14 +16,13 @@ Liebe Tanguerosas!
 
 Eigentlich hätte ich gerne eine Corona-Party gemacht, damit der Spuk eher zu Ende ist...
 Da sich der Spuk für gewisse Kreise jedoch sehr bewährt und nun möglichst lange dauern soll, werden Indoorveranstaltungen mit mehr als 100 Teilnehmern mit massiven Geldstrafen bedroht. Deshalb müssen wir die Milongas in Eschelberg vorläufig aussetzen. 
-Wir freuen uns aber wenn's dann wieder einen umso innigeren Tango gibt. (In China sind angeblich drei Viertel der "Opfer" schon wieder gesund...)
+Wir freuen uns aber wenn's dann wieder einen umso innigeren Tango gibt. 
 Außerdem sehr interessant zum Thema: https://www.youtube.com/watch?v=hW4qzAPP5pU
 und: https://www.youtube.com/watch?v=aYZ2gVs9U7o
 
 ## Vorankündigungen
-Die XV. Tangotage Eschelberg 2019 finden am Fronleichnamswochenende vom 11. bis 14. Juni 2020 statt.
+Die XV. Tangotage Eschelberg 2019 vom 11. bis 14. Juni 2020 können derzeit leider nicht stattfinden.
 
-Am Muttertag, Sonntag, dem 10 Mai Präsentieren die "Donauweibchen" - (ich würde eher sagen: -weiber) Monika Holzman (Vocal) mit Angela Dobretsberger (Accordeon) ihr neues Chanson-Programm "Paris Mon Amour" im Atelier Eschelberg.
 
 Übernachtungsmöglichkeiten in 
 Im ehemaligen Gasthof Reingruber bietet der neue Besitzer (manchmal !) Zimmer an unter: tel. 0664 1205541
