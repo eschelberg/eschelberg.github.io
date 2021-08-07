@@ -6,22 +6,22 @@ weight: 1
 
 Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – Milongas statt. Die Eschelberger Tangotage fallen alljährlich auf die verlängerten Wochenenden von Christi Himmelfahrt oder Fronleichnam.  
 „Tango Eschelberg“ ist eine private Non - Profit – Initiative. Tangfreunde aus aller Welt sind hier willkommen.
-Bei den Milongas wollen wir das gesamte Spektrum der Tango – Literatur genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
+Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
 ## Termine
 
 Liebe Tanguerosas!
-## Die nächste Milonga im Gartenatelier in Eschelberg am Freitag, dem 13. März entfällt !!!
+## Derzeit keine offiziellen Milongas im Atelier Eschelberg !!!
 
-Eigentlich hätte ich gerne eine Corona-Party gemacht, damit der Spuk eher zu Ende ist...
-Da sich der Spuk für gewisse Kreise jedoch sehr bewährt und nun möglichst lange dauern soll, werden Indoorveranstaltungen mit mehr als 100 Teilnehmern mit massiven Geldstrafen bedroht. Deshalb müssen wir die Milongas in Eschelberg vorläufig aussetzen. 
-Wir freuen uns aber wenn's dann wieder einen umso innigeren Tango gibt. 
-Außerdem sehr interessant zum Thema: https://www.youtube.com/watch?v=hW4qzAPP5pU
-und: https://www.youtube.com/watch?v=aYZ2gVs9U7o
+Leider ist es unter den aktuellen Umständen nicht möglich, eine offizielle Milonga  zu organisieren. Ihr seht es selbst.
 
-## Vorankündigungen
-Die XV. Tangotage Eschelberg 2019 vom 11. bis 14. Juni 2020 können derzeit leider nicht stattfinden.
+Was die Zukunft bringt ist völlig unklar und die Risiken sind nicht einschätzbar. Auch könnten wir es nicht ertragen, wenn wir Menschen ausschließen müßten, - das ist so gar nicht die freiheitliche Idee des Tangos. Wir können keine offizielle Milonga veranstalten, zu der nicht jeder vorbehaltlos kommen kann.
+
+Wir hoffen, daß der Spuk bald ein Ende hat und wir alle wieder viele schöne Tänze und gute Momente miteinander genießen können. 
+
+ps.: der obige Text ist teilweise von „Tango Wuppertal“ übernommen, dessen Haltung auch wir schätzen.
+
 
 
 Übernachtungsmöglichkeiten in 
