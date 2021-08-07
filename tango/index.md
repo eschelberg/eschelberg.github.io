@@ -18,7 +18,7 @@ Leider ist es unter den aktuellen Umständen nicht möglich, eine offizielle Mil
 
 Was die Zukunft bringt ist völlig unklar und die Risiken sind nicht einschätzbar. Auch könnten wir es nicht ertragen, wenn wir Menschen ausschließen müßten, - das ist so gar nicht die freiheitliche Idee des Tangos. Wir können keine offizielle Milonga veranstalten, zu der nicht jeder vorbehaltlos kommen kann.
 
-Wir hoffen, daß der Spuk bald ein Ende hat und wir alle wieder viele schöne Tänze und gute Momente miteinander genießen können. 
+Wir hoffen, daß der Spuk bald ein Ende hat und wir alle wieder viele schöne Tänze und gute Momente in Freiheit miteinander genießen können. 
 
 ps.: der obige Text ist teilweise von „Tango Wuppertal“ übernommen, dessen Haltung auch wir schätzen.
 
