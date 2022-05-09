@@ -12,7 +12,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine
 
 Liebe Tanguerosas!
-## Milonga am 13. Mai 2022 und Vorschau mTangotage 2022
+## Milonga am 13. Mai 2022 und Vorschau Tangotage 2022
 
 Liebe Tanguerosas!
 
