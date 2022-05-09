@@ -16,14 +16,19 @@ Liebe Tanguerosas!
 
 Liebe Tanguerosas!
 
-Am Freitag, dem 13. Mai 2022 treffen wir uns ab 21°° Uhr im Atelier Eschelberg. 
+Am Freitag, dem 13. Mai 2022 treffen wir uns ab 21°° Uhr im Atelier Eschelberg.
+
 Es gilt 1G: „Gesund“
-Wir freuen uns auf Euer Kommen! 
+
+Wir freuen uns auf Euer Kommen!
+
 Viele Grüße,
 Magnus und Eva Maria
 
 ## Vorschau:
-Die „Eschelberger Tangotage“ finden dieses Jahr am Fronleichnamswochenende statt. Das ist vom Donnerstag, dem 16. bis zum Sonntag, dem 19. Juni.
+Die „Eschelberger Tangotage“ finden dieses Jahr am Fronleichnamswochenende statt. 
+Das ist vom Donnerstag, dem 16. bis zum Sonntag, dem 19. Juni.
+
 Das Programm wird noch bekannt gegeben.
 
 
