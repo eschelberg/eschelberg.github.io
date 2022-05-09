@@ -12,21 +12,24 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine
 
 Liebe Tanguerosas!
-## Derzeit keine offiziellen Milongas im Atelier Eschelberg !!!
+## Milonga am 13. Mai 2022 und Vorschau mTangotage 2022
 
-Leider ist es unter den aktuellen Umständen nicht möglich, eine offizielle Milonga  zu organisieren. Ihr seht es selbst.
+Liebe Tanguerosas!
 
-Was die Zukunft bringt ist völlig unklar und die Risiken sind nicht einschätzbar. Auch könnten wir es nicht ertragen, wenn wir Menschen ausschließen müßten, - das ist so gar nicht die freiheitliche Idee des Tangos. Wir können keine offizielle Milonga veranstalten, zu der nicht jeder vorbehaltlos kommen kann.
+Am Freitag, dem 13. Mai 2022 treffen wir uns ab 21°° Uhr im Atelier Eschelberg. 
+Es gilt 1G: „Gesund“
+Wir freuen uns auf Euer Kommen! 
+Viele Grüße,
+Magnus und Eva Maria
 
-Wir hoffen, daß der Spuk bald ein Ende hat und wir alle wieder viele schöne Tänze und gute Momente in Freiheit miteinander genießen können. 
+## Vorschau:
+Die „Eschelberger Tangotage“ finden dieses Jahr am Fronleichnamswochenende statt. Das ist vom Donnerstag, dem 16. bis zum Sonntag, dem 19. Juni.
+Das Programm wird noch bekannt gegeben.
 
-ps.: der obige Text ist teilweise von „Tango Wuppertal“ übernommen, dessen Haltung auch wir schätzen.
 
-
-
-Übernachtungsmöglichkeiten in 
+Übernachtungsmöglichkeiten:
 Im ehemaligen Gasthof Reingruber bietet der neue Besitzer (manchmal !) Zimmer an unter: tel. 0664 1205541
-oder: Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, Rodlhof, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
+oder: Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
 
 Freiwilliger Beitrag (Vorschlag): ab € 6.- pro Milonga 
 
