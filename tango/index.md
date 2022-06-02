@@ -35,7 +35,7 @@ Samstag, 18. Juni
 
 2100	    •  Milonga  Lifemusik: “TANGO PORTEÑO”- Sextet
 
-Violinen:   Elisabeth Köstler und Jorge Garzon
+Violinen:   Selestina Vučković und Jorge Garzon
 
 Akkordeons: Michaela Beltaief und Jolanda Schwarz
 
