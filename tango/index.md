@@ -17,11 +17,10 @@ Die Milongatermine am 10. und 24. Juni fallen aus wegen der Nähe zu den XVII. E
 
 ## Donnerstag, 16. Juni
 
-1800	    • Ankunft und gemütliches Beisammensein
+1800	    • Ankunft und gemütliches Beisammensein.
 	          Bei schönem Wetter: Grillerei
-		  
-	        • Ausstellung: 	Gerhard Doppelhammer
-	      			Neue Bilder
+	    • Ausstellung: 	Gerhard Doppelhammer
+	      			"Neue Bilder"
 			
 2100	    • Milonga  Musik Joachim
 
@@ -36,11 +35,9 @@ Samstag, 18. Juni
 
 2100	    •  Milonga  Lifemusik: “TANGO PORTEÑO”- Sextet
 
-Violinen:   Elisabeth Köstler
-	    Jorge Garzon
+Violinen:   Elisabeth Köstler und Jorge Garzon
 
-Akkordeons: Michaela Beltaief
-	    Jolanda Schwarz
+Akkordeons: Michaela Beltaief und Jolanda Schwarz
 
 Klavier:    Gerhard Urban
 
@@ -48,9 +45,9 @@ Bass: 	    Barbara Schachenhofer
 
 ## Sonntag, 19. Juni
 
-	    • Tango - Frühschoppen
+• Tango - Frühschoppen
 	    
-	    • Ausklang ...
+• Ausklang ...
 
 ## 17 Jahre Anarcho-Tango in Eschelberg!
 
