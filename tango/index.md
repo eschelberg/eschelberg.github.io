@@ -30,7 +30,7 @@ Die Milongatermine am 10. und 24. Juni fallen aus wegen der Nähe zu den XVII. E
 
 ab 2100	    •  Milonga Musik Magnus
 
-Samstag, 18. Juni
+## Samstag, 18. Juni
 1600 - 1800 • Tango Technik- und Figuren Bazar
 
 2100	    •  Milonga  Lifemusik: “TANGO PORTEÑO”- Sextet
