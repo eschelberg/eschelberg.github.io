@@ -21,7 +21,7 @@ Die Milongatermine am 10. und 24. Juni fallen aus wegen der Nähe zu den XVII. E
 	          Bei schönem Wetter: Grillerei
 		  
 	        • Ausstellung: 	Gerhard Doppelhammer
-	      		Neue Bilder
+	      			Neue Bilder
 			
 2100	    • Milonga  Musik Joachim
 
@@ -37,11 +37,9 @@ Samstag, 18. Juni
 2100	    •  Milonga  Lifemusik: “TANGO PORTEÑO”- Sextet
 
 Violinen:   Elisabeth Köstler
-
 	    Jorge Garzon
 
 Akkordeons: Michaela Beltaief
-
 	    Jolanda Schwarz
 
 Klavier:    Gerhard Urban
