@@ -21,6 +21,7 @@ Magnus und Eva Maria
 
 
 
+
 Nachricht aus Steyr:
 ## Celeste Medina 
 wird von 5. bis 12. Juli zu uns nach Steyr kommen. Mit ihrer inspirierenden Tango Expertise bietet sie in Privatstunden für Frauen, Männer und Paare die Gelegenheit, das persönliche Tango Tanzen weiter zu entfalten.
