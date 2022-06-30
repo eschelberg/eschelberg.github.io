@@ -43,8 +43,6 @@ Harald Koisser • Schloss Eschelberg • Eschelberg 2 • A-4112 St.�
 
 
 
-
-
 ![Titel](/files/tango/Fuchs 30.jpg)
 
 
