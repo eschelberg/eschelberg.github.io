@@ -14,7 +14,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Die Milonga am 5. August fällt aus !!!
 
 Die nächste Milonga  im Atelier Eschelberg gibt‘s 
-Am Freitag, dem 19. Juli 2022  ab 21°° Uhr. 
+Am Freitag, dem 19. August 2022  ab 21°° Uhr. 
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
 
