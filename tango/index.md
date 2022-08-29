@@ -9,12 +9,16 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## Termine im August:
+## Termine im September:
 
-## Die Milonga am 5. August fällt aus !!!
+Liebe Tanguerosas!
 
-Die nächste Milonga  im Atelier Eschelberg gibt‘s 
-am Freitag, dem 19. August 2022  ab 21°° Uhr. 
+Die nächste Milonga im Atelier Eschelberg gibt‘s
+
+Am Freitag, dem 2. September 2022 ab 21°° Uhr.
+
+
+Die Milonga am 16. September fällt aus !!! (auch wenn es im Linzer Tangokalender anders steht), der 30. September ist noch nicht sicher...
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
 
