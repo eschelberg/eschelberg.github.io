@@ -15,10 +15,11 @@ Liebe Tanguerosas!
 
 Wir sind zurück von der Insel.
 
-Die nächste Milonga  im Atelier Eschelberg gibt‘s 
+Die nächste Milonga im Atelier Eschelberg gibt‘s 
 am Freitag, dem 30. September 2022  ab 21°° Uhr. 
 
 Die Termine für den Oktober sind:
+
 Freitag, 14. Oktober 2022  ab 21°° Uhr. 
 Freitag, 28. Oktober 2022  ab 21°° Uhr. 
 
