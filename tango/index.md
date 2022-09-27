@@ -45,4 +45,6 @@ Harald Koisser • Schloss Eschelberg • Eschelberg 2 • A-4112 St.�
 
 ![Titel](/files/tango/Fuchs 30.jpg)
 
-
+<!-- ### Begin BoD ShopWidget -->
+<div id="bodShopWidget_3004110_print" class="bodShopWidget"></div><script type="text/javascript">if(typeof checkLibExist == "undefined"){var script = document.createElement("script");script.src ="//www.bod.de/public/js/bod/v1.1/shopWidget.min.js";script.type = "text/javascript";document.head.appendChild(script);var checkLibExist = true;}if(typeof books === "undefined") var books=[];books.push({"objID":"3004110","swKey":"b049b0f14113b8d5e96a87afaa08f71d","type":"print","size":"large","font":"serif","shadow":false,"contour":false,"coverContour":true,"fontColor":"#212529","contourColor":"#212529","shadowBtn":false,"contourBtn":false,"bgColor":"#fff","btnFontColor":"#fff","btnColor":"#fd6041","btnContourColor":"#fd6041","shop":"de","mandantShopUrl":"https://www.bod.de/buchshop","lang":"de"});</script>
+<!-- ### End BoD ShopWidget -->
