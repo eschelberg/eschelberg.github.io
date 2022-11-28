@@ -18,9 +18,11 @@ Am 23. Dezember gibt es keine Milonga !!! Dafür Gibt‘s am 31. Dezember endlic
 ## Silvestermilonga 
 Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
 Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
- 
+
 Beginn: Samstag, 31. Dezember 2022 um 20°° Uhr – Ende: irgendwann 2023
+
 Freiwillige Spendenempfehlung: ab € 8.-
+
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541
 Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
  
