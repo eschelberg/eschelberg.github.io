@@ -12,7 +12,8 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine im Dezember 22
 
 Liebe Tanguerosas!
-Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 9. Dezember ab 21°° Uhr. 
+Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 9. Dezember ab 21°° Uhr.
+
 Am 23. Dezember gibt es keine Milonga !!! Dafür Gibt‘s am 31. Dezember endlich wieder eine 
  
 ## Silvestermilonga 
