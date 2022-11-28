@@ -9,26 +9,26 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## Termine im September/Oktober:
+## Termine im Dezember 22
 
 Liebe Tanguerosas!
-
-Die Milonga Termine im Atelier Eschelberg für den November sind:
-
-Freitag, 11. November 2022 ab 21°° Uhr.
-
-Freitag, 25. November 2022 ab 21°° Uhr.
-
-Wir freuen uns auf Euer Kommen! Viele Grüße,
-
-Magnus und Eva Maria
-
-
-
+Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 9. Dezember ab 21°° Uhr. 
+Am 23. Dezember gibt es keine Milonga !!! Dafür Gibt‘s am 31. Dezember endlich wieder eine 
+ 
+## Silvestermilonga 
+Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
+Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
+ 
+Beginn: Samstag, 31. Dezember 2022 um 20°° Uhr – Ende: irgendwann 2023
 Freiwillige Spendenempfehlung: ab € 8.-
+Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541
+Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
+ 
+Weitere Informationen unter: http://eschelberg.net/tango/ am besten immer kurzfristig nochmal prüfen!
+Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne
 
 
-Übernachtungsmöglichkeiten in 
+weitere Übernachtungsmöglichkeiten in 
 Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
 Es gibt auch eine begrenzte Übernachtungsmöglichkeit im Schloß Eschelberg.
 Info unter: 
