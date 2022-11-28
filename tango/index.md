@@ -25,10 +25,6 @@ Freiwillige Spendenempfehlung: ab € 8.-
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541
 Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
- 
-Weitere Informationen unter: http://eschelberg.net/tango/ am besten immer kurzfristig nochmal prüfen!
-Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne
-
 
 weitere Übernachtungsmöglichkeiten in 
 Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
