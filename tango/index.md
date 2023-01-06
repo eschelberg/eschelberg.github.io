@@ -9,22 +9,16 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## Termine im Dezember 22
+## Termine im Jänner 2023
 
 Liebe Tanguerosas!
+ 
+Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 20. Jänner 2023 ab 21°° Uhr. 
 
-Leider müssen wir die Milonga am 9. Dezember wegen Krankheit absagen!!!
+Wir freuen uns auf Euer Kommen!
 
-Auch am 23. Dezember gibt es keine Milonga !!! 
-
-Um so mehr freuen wir uns auf die 
-
-## Silvestermilonga am 31. Dezember
-
-Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der schon traditionellen Silvestermilonga in Eschelberg.
-Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
-
-Beginn: Samstag, 31. Dezember 2022 um 20°° Uhr – Ende: irgendwann 2023
+Viele Grüße,
+Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: ab € 8.-
 
@@ -32,7 +26,9 @@ Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reing
 Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
 weitere Übernachtungsmöglichkeiten in 
+
 Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
+
 Es gibt auch eine begrenzte Übernachtungsmöglichkeit im Schloß Eschelberg.
 Info unter: 
 http://schlossnaechtigung.simplesite.com
