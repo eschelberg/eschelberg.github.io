@@ -12,8 +12,9 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## Termine im Februar 2023
 
 Liebe Tanguerosas!
- 
-Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 3. Februar 2023 ab 21°° Uhr. 
+
+Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 3. Februar 2023 ab 21°° Uhr.
+
 Die folgende Milonga ist am 17. Februar ab 21°° Uhr. 
 
 Wir freuen uns auf Euer Kommen!
