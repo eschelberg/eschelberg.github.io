@@ -9,7 +9,7 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## Keine Milonga am Freitag, dem 3.Februar 2023
+## Keine Milonga am Freitag, dem 3.März 2023
 
 Liebe Tanguerosas!
 
