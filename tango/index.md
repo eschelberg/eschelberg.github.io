@@ -9,20 +9,18 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## Termine im Februar 2023
 
 Liebe Tanguerosas!
 
-Die nächste Milonga im Atelier Eschelberg gibt‘s am Freitag, dem 3. Februar 2023 ab 21°° Uhr.
+## Leider müssen wir die Milonga am Freitag, dem 3. März 2023 wegen Schnupfen und Huste, etc… absagen.
 
-Die folgende Milonga ist am 17. Februar ab 21°° Uhr. 
-
-Wir freuen uns auf Euer Kommen!
-Viele Grüße,
-Magnus und Eva Maria
+Die folgenden Milongas dann am 17. und am 31. März ab 21°° Uhr.
 
 Viele Grüße,
+
 Magnus und Eva Maria
+
+
 
 Freiwillige Spendenempfehlung: ab € 8.-
 
