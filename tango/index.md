@@ -13,7 +13,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die folgende Milonga im Gartenatelier gibt es am 28. April 2023 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier gibt es am 28. April 2023 ab 21°° Uhr.
 
 ## Vorschau: 
 Die Eschelberger Tangotage finden dieses Jahr wieder am Fronleichnamswochenende vom 8. bis 11. Juni 2023 statt.
