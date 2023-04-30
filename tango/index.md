@@ -9,14 +9,14 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## Milonga im April
+## Milonga im Mai 2023
 
 Liebe Tanguerosas!
 
-Die nächste Milonga im Gartenatelier gibt es am 28. April 2023 ab 21°° Uhr.
+Die nächste Milonga im Gartenatelier gibt es am 12. Mai 2023 ab 21°° Uhr.
 
-## Vorschau: 
-Die Eschelberger Tangotage finden dieses Jahr wieder am Fronleichnamswochenende vom 8. bis 11. Juni 2023 statt.
+## Vorschau: Die Eschelberger Tangotage 
+finden dieses Jahr wieder am Fronleichnamswochenende vom 8. bis 11. Juni 2023 statt.
 
 Viele Grüße,
 
