@@ -33,5 +33,5 @@ weitere Übernachtungsmöglichkeiten in
 Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
 
 
-![Titel](/files/tango/Fuchs 30.jpg)
+![Titel](/files/tango/TB12_248.jpg)
 
