@@ -32,12 +32,6 @@ weitere Übernachtungsmöglichkeiten in
 
 Ottensheim (8 km von Eschelberg): Gasthof zum schwarzen Adler, private Pensionen im Internet: http://tourismus.ottensheim.at/ eventuell auch: Gasthaus “Mitten in der Welt” in Neusserling
 
-Es gibt auch eine begrenzte Übernachtungsmöglichkeit im Schloß Eschelberg.
-Info unter: 
-http://schlossnaechtigung.simplesite.com
-Harald Koisser • Schloss Eschelberg • Eschelberg 2 • A-4112 St. Gotthard • www.schloss-eschelberg.at Mobil: +43 699 1 7107707 • 
-
-
 
 ![Titel](/files/tango/Fuchs 30.jpg)
 
