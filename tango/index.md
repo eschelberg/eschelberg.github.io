@@ -12,14 +12,14 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 ## XVIII. Tangotage Eschelberg
  
 ## Donnerstag, 8. Juni, Fronleichnam
-1800 • Ankunft und gemütliches Beisammensein
+18:00 • Ankunft und gemütliches Beisammensein
 Bei schönem Wetter: Grillerei 
 ## Ausstellung: Gerhard Doppelhammer: Neue Bilder
-2100 • Milonga Musik Magnus
+21:00 • Milonga Musik Magnus
  
 ## Freitag, 9. Juni 
-1600 - 1800 • Tango Technik- und Figuren Bazar
-ab 2100 • Milonga 
+16:00 - 18:00 • Tango Technik- und Figuren Bazar
+ab 21:00 • Milonga 
 ## Lifemusik: “DOS y TRES”
 Akkordeons:   Edith Niedermayr, Michaela Beltaief, Jolanda Schwarz
 
@@ -28,9 +28,9 @@ Akkordeons:   Edith Niedermayr, Michaela Beltaief, Jolanda Schwarz
 Gesang:       Andrea Stumbauer
  
 ## Samstag, 10. Juni
-1600 - 1800 • Tango Technik- und Figuren Bazar
+16:00 - 18:00 • Tango Technik- und Figuren Bazar
 
-2100 • Milonga Musik Joachim 
+21:00 • Milonga Musik Joachim 
  
 ## Sonntag, 11. Juni
 • Tango - Frühschoppen
