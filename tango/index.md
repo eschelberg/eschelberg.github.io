@@ -11,7 +11,7 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## XVIII. Tangotage Eschelberg
  
-Donnerstag, 8. Juni, Fronleichnam
+## Donnerstag, 8. Juni, Fronleichnam
 1800 • Ankunft und gemütliches Beisammensein
 Bei schönem Wetter: Grillerei 
 ## Ausstellung: Gerhard Doppelhammer: Neue Bilder
@@ -22,28 +22,36 @@ Bei schönem Wetter: Grillerei
 ab 2100 • Milonga 
 ## Lifemusik: “DOS y TRES”
 Akkordeons:   Edith Niedermayr, Michaela Beltaief, Jolanda Schwarz
+
               Johannes Münzner, Anton Pichler
+              
 Gesang:       Andrea Stumbauer
  
 ## Samstag, 10. Juni
 1600 - 1800 • Tango Technik- und Figuren Bazar
+
 2100 • Milonga Musik Joachim 
  
 ## Sonntag, 11. Juni
 • Tango - Frühschoppen
+
 • Ausklang ...
  
 ## 20 Jahre Anarcho-Tango in Eschelberg!
  
 • Keine “Workshops” - kein Workshop - Stress !
    dafür gibts einen Technik- und Figurenbasar
+   
 • Kein Stilfanatismus - wir spielen klassische, 
    moderne, Neo- und Nontangos - 
    die Tradition des Tangos besteht nicht darin, nur 
    mindestens 60 Jahre alte Musik zu spielen. Die Tradi- 
    tion des Tangos war immer die Offenheit für Neues.
+   
 • Tanda- und Cortinafrei - die Musik bleibt immer im Fluß
+
 • Zum Grillen: Fisch, Fleisch oder Gemüse nach Belieben mitbringen. Für Getränke (Wein, Wasser, Tee, Kaffee) ist gesorgt.
+
 • Keine Anmeldung - Wer kommt ist da.
  
 Freiwillige Spendenempfehlung: Milonga am 8. und 10. Juni: ab € 10.-
@@ -54,9 +62,10 @@ Milonga mit Lifemusik am 9. Juni: ab € 20.-
 Übernachtungsmöglichkeiten:
 Übernachtung im Garten (im Zelt) oder: Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
-Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne Kommentar zurückschicken.
+
 
 Wir freuen uns auf Euer Kommen!
+
 Viele Grüße,
 Magnus und Eva Maria
 
