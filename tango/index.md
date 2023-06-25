@@ -9,65 +9,26 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-## XVIII. Tangotage Eschelberg
- 
-## Donnerstag, 8. Juni, Fronleichnam
-18:00 • Ankunft und gemütliches Beisammensein
-Bei schönem Wetter: Grillerei 
-## Ausstellung: Gerhard Doppelhammer: Neue Bilder
-21:00 • Milonga Musik Magnus
- 
-## Freitag, 9. Juni 
-16:00 - 18:00 • Tango Technik- und Figuren Bazar
-ab 21:00 • Milonga 
-## Lifemusik: “DOS y TRES”
-Akkordeons:   Edith Niedermayr, Michaela Beltaief, Jolanda Schwarz
+Liebe Tanguerosas!
 
-              Johannes Münzner, Anton Pichler
-              
-Gesang:       Andrea Stumbauer
- 
-## Samstag, 10. Juni
-16:00 - 18:00 • Tango Technik- und Figuren Bazar
+Die folgenden Milongas im Gartenatelier gibt es am 
 
-21:00 • Milonga Musik Joachim 
- 
-## Sonntag, 11. Juni
-• Tango - Frühschoppen
+## Freitag, 7. Juli 2023  ab 21°° Uhr. 
 
-• Ausklang ...
- 
-## 20 Jahre Anarcho-Tango in Eschelberg!
- 
-• Keine “Workshops” - kein Workshop - Stress !
-   dafür gibts einen Technik- und Figurenbasar
-   
-• Kein Stilfanatismus - wir spielen klassische, 
-   moderne, Neo- und Nontangos - 
-   die Tradition des Tangos besteht nicht darin, nur 
-   mindestens 60 Jahre alte Musik zu spielen. Die Tradi- 
-   tion des Tangos war immer die Offenheit für Neues.
-   
-• Tanda- und Cortinafrei - die Musik bleibt immer im Fluß
+## Freitag, 21. Juli 2023  ab 21°° Uhr. 
 
-• Zum Grillen: Fisch, Fleisch oder Gemüse nach Belieben mitbringen. Für Getränke (Wein, Wasser, Tee, Kaffee) ist gesorgt.
+Bei schönem Wetter können wir jeweils ab 18°° Uhr grillen.
 
-• Keine Anmeldung - Wer kommt ist da.
- 
-Freiwillige Spendenempfehlung: Milonga am 8. und 10. Juni: ab € 10.-
-Milonga mit Lifemusik am 9. Juni: ab € 20.-
+Wir freuen uns auf Euer Kommen! Viele Grüße,
+Magnus und Eva Maria
 
-## Vier Tage Tango außer der Welt, - in der Wirklichkeit, - in Eschelberg.
+Freiwillige Spendenempfehlung: ab € 8.- 
 
-Übernachtungsmöglichkeiten:
-Übernachtung im Garten (im Zelt) oder: Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
+Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
+
 Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
 
-
-Wir freuen uns auf Euer Kommen!
-
-Viele Grüße,
-Magnus und Eva Maria
+Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne Kommentar zurückschicken.
 
 
 
