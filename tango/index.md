@@ -22,6 +22,7 @@ Bei schönem Wetter können wir jeweils ab 18°° Uhr grillen.
 Wir freuen uns auf Euer Kommen! 
 
 Viele Grüße,
+
 Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: ab € 8.- 
