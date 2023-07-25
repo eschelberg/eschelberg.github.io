@@ -16,7 +16,7 @@ Die folgende Milonga im Gartenatelier gibt es am
 ## Freitag, 4. August 2023  ab 21°° Uhr. 
  
 
-Bei schönem Wetter können wir jeweils ab 19°° Uhr grillen.
+Bei schönem Wetter können wir ab 19°° Uhr grillen.
 
 Wir freuen uns auf Euer Kommen! 
 
