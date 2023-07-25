@@ -11,13 +11,12 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die folgenden Milongas im Gartenatelier gibt es am 
+Die folgende Milonga im Gartenatelier gibt es am 
 
-## Freitag, 7. Juli 2023  ab 21°° Uhr. 
+## Freitag, 4. August 2023  ab 21°° Uhr. 
+ 
 
-## Freitag, 21. Juli 2023  ab 21°° Uhr. 
-
-Bei schönem Wetter können wir jeweils ab 18°° Uhr grillen.
+Bei schönem Wetter können wir jeweils ab 19°° Uhr grillen.
 
 Wir freuen uns auf Euer Kommen! 
 
@@ -29,9 +28,9 @@ Freiwillige Spendenempfehlung: ab € 8.-
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
-Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
+am besten immer kurzfristig nochmal prüfen!
 
-Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne Kommentar zurückschicken.
+
 
 
 
