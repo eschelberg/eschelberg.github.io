@@ -32,8 +32,5 @@ Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reing
 am besten immer kurzfristig nochmal prüfen!
 
 
-
-
-
 ![Titel](/files/tango/TB12_248.jpg)
 
