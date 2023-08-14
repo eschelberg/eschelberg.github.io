@@ -11,9 +11,10 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Liebe Tanguerosas!
 
-Die folgende Milonga im Gartenatelier gibt es am 
+Es ist zwar im Linzer Tangokalender nicht angekündigt aber:
+Die nächste Milonga im Gartenatelier gibt es am 
 
-## Freitag, 4. August 2023  ab 21°° Uhr. 
+## Freitag, 18. August 2023  ab 21°° Uhr. 
  
 
 Bei schönem Wetter können wir ab 19°° Uhr grillen.
