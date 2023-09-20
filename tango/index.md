@@ -10,6 +10,7 @@ Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: 
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
 Die nächste Milonga im Gartenatelier gibt es am 
+
 ## Freitag, 29. September 2023  ab 21°° Uhr. 
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
