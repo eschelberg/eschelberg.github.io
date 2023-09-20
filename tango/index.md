@@ -9,20 +9,10 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
 Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
-Liebe Tanguerosas!
-
-Es ist zwar im Linzer Tangokalender nicht angekündigt aber:
 Die nächste Milonga im Gartenatelier gibt es am 
+## Freitag, 29. September 2023  ab 21°° Uhr. 
 
-## Freitag, 18. August 2023  ab 21°° Uhr. 
- 
-
-Bei schönem Wetter können wir ab 19°° Uhr grillen.
-
-Wir freuen uns auf Euer Kommen! 
-
-Viele Grüße,
-
+Wir freuen uns auf Euer Kommen! Viele Grüße,
 Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: ab € 8.- 
