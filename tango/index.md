@@ -11,7 +11,8 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 Die nächste Milonga im Gartenatelier gibt es am 
 
-## Freitag, 29. September 2023  ab 21°° Uhr. 
+## Freitag, 27. Oktober 2023  ab 21°° Uhr. 
+Der Termin am 13. Oktober entfällt, da es da bereits eine außertourliche  Milonga im Ursulinenhof gibt.
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
 
