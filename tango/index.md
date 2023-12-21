@@ -24,7 +24,9 @@ Beginn: Sonntag, 31. Dezember 2023 um 20°° Uhr – Ende: irgendwann 2024
 
 Freiwillige Spendenempfehlung: € 8.- 
 
-Wir freuen uns auf Euer Kommen! Viele Grüße,
+Wir freuen uns auf Euer Kommen! 
+Viele Grüße,
+
 Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: ab € 8.- 
