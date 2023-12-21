@@ -11,30 +11,25 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Liebe Tanguerosas!
  
-hier meine Ankündigung für 
-## November 2023:
-
-Freitag, 10. November  2023  ab 21°° Uhr. 
-Freitag, 24. November  2023  ab 21°° Uhr. 
-
-Und hier für 
-## Dezember:
-Freitag, 8. Dezember  2023  ab 21°° Uhr. 
-
-Am 22. Dezember gibt es keine Milonga in Eschelberg, dafür die
 
 ## Traditionelle Silvestermilonga 
-am Sonntag, dem 31. Dezember ab 20°° Uhr. 
+
+Wir machen‘s noch mal! 
+
+Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der traditionellen Silvestermilonga in Eschelberg.
+Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
+ oder im Iglu im Garten.
+ 
+Beginn: Sonntag, 31. Dezember 2023 um 20°° Uhr – Ende: irgendwann 2024
+
+Freiwillige Spendenempfehlung: € 8.- 
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
-
 Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: ab € 8.- 
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
-
-am besten immer kurzfristig nochmal prüfen!
 
 
 ![Titel](/files/tango/TB12_248.jpg)
