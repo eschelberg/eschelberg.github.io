@@ -17,7 +17,8 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 Wir machen‘s noch mal! 
 
 Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der traditionellen Silvestermilonga in Eschelberg.
-Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
+Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. 
+Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
  
 Beginn: Sonntag, 31. Dezember 2023 um 20°° Uhr – Ende: irgendwann 2024
 
