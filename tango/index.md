@@ -11,20 +11,17 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Liebe Tanguerosas!
  
+Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
+Freitag, 19. Jänner  2024  ab 21°° Uhr. 
 
-## Traditionelle Silvestermilonga 
+Wir freuen uns auf Euer Kommen! Viele Grüße,
 
-Wir machen‘s noch mal! 
-
-Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein bei der traditionellen Silvestermilonga in Eschelberg.
-Für das legendäre Festbuffet bringt jeder etwas Feines, (vorwiegend Fischiges) mit. 
-Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
- 
-Beginn: Sonntag, 31. Dezember 2023 um 20°° Uhr – Ende: irgendwann 2024
+Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: € 8.- 
 
 Wir freuen uns auf Euer Kommen! 
+
 Viele Grüße,
 
 Magnus und Eva Maria
