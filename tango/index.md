@@ -11,8 +11,10 @@ Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbroc
 
 ## Liebe Tanguerosas!
  
+## Im Februar keine Milonga !!!
+
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
-## Freitag, 19. Jänner  2024  ab 21°° Uhr. 
+## Freitag, 1. März 2024  ab 21°° Uhr. 
 
 Wir freuen uns auf Euer Kommen! 
 
