@@ -10,7 +10,7 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 ## Liebe Tanguerosas!
 
 ## Vorschau: Die Eschelberger Tangotage 
-finden heuer wieder am Fronbleichnamswochenende (31.Mai bis 2. Juni) statt.
+finden heuer wieder am Fronleichnamswochenende (31.Mai bis 2. Juni) statt.
 
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
 ## Freitag, 1. März 2024  ab 21°° Uhr. 
