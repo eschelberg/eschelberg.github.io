@@ -6,12 +6,11 @@ weight: 1
 
 Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – Milongas statt. Die Eschelberger Tangotage fallen alljährlich auf die verlängerten Wochenenden von Christi Himmelfahrt oder Fronleichnam.  
 „Tango Eschelberg“ ist eine private Non - Profit – Initiative. Tangfreunde aus aller Welt sind hier willkommen.
-Bei den Milongas wollen wir das gesamte Spektrum der Tango – Musik genießen: Die Tradition der „goldenen“ Ära genauso wie moderne und revolutionäre „Neo“ - und tangoreuse Non -Tangos sollen ein harmonisches Ganzes bilden (was meistens gelingt).
-Der musikalische Fluß des Abends wird nicht durch Tandas und Cortinas unterbrochen.
 
 ## Liebe Tanguerosas!
- 
-## Im Februar keine Milonga !!!
+
+## Vorschau: Die Eschelberger Tangotage 
+finden heuer wieder am Fronbleichnamswochenende (31.Mai bis 2. Juni) statt.
 
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
 ## Freitag, 1. März 2024  ab 21°° Uhr. 
