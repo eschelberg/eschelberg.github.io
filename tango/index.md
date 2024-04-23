@@ -40,7 +40,7 @@ Ausklang …
 
 • Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
-• Übernachtung im Garten (im Zelt) oder
+• Übernachtung im Garten (im Zelt) 
 
 Wir freuen uns auf Euer Kommen! 
 
