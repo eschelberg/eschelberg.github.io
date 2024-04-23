@@ -9,11 +9,26 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 
 ## Liebe Tanguerosas!
 
-## Vorschau: Die Eschelberger Tangotage 
+## Die XIX Eschelberger Tangotage 
 finden heuer wieder am Fronleichnamswochenende (31.Mai bis 2. Juni) statt.
 
-Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
-## Freitag, 1. März 2024  ab 21°° Uhr. 
+## Donnerstag, 30. Mai
+Milonga ab 21°° Uhr 
+Musik Joachim
+
+## Freitag, 31. Mai
+1600 - 1800 • Tango Technik- und Figuren Bazar
+Milonga ab 21°° Uhr 
+Musik Magnus
+
+## Samstag, 1. Juni
+1600 - 1800 • Tango Technik- und Figuren Bazar
+Milonga ab 21°° Uhr  
+Lifemusik: “DOS y TRES” 
+
+## Sonntag, 2. Juni
+Tango – Frühschoppen,
+Ausklang …
 
 Wir freuen uns auf Euer Kommen! 
 
@@ -21,7 +36,7 @@ Viele Grüße,
 
 Magnus und Eva Maria
 
-Freiwillige Spendenempfehlung: ab € 8.- 
+Freiwillige Spendenempfehlung: 30., 31. Mai ab € 10.- , 1. Juni ab € 20
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
