@@ -18,8 +18,6 @@ Freiwillige Spendenempfehlung: ab € 8.-
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
-Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne Kommentar zurückschicken.
-
 
 Wir freuen uns auf Euer Kommen! 
 
