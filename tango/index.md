@@ -7,40 +7,24 @@ weight: 1
 Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – Milongas statt. Die Eschelberger Tangotage fallen alljährlich auf die verlängerten Wochenenden von Christi Himmelfahrt oder Fronleichnam.  
 „Tango Eschelberg“ ist eine private Non - Profit – Initiative. Tangfreunde aus aller Welt sind hier willkommen.
 
+
 ## Liebe Tanguerosas!
 
-## Die XIX Eschelberger Tangotage 
-finden heuer wieder am Fronleichnamswochenende (31.Mai bis 2. Juni) statt.
+Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
 
-## Donnerstag, 30. Mai
-Milonga ab 21°° Uhr 
-Musik Joachim
+## Freitag, 21. Juni 2024  ab 21°° Uhr. 
 
-## Freitag, 31. Mai
-16°° - 18°° • Tango Technik- und Figuren Bazar
+Wir freuen uns auf Euer Kommen! Viele Grüße,
+Magnus und Eva Maria
 
-Milonga ab 21°° Uhr 
-Musik Magnus
+Freiwillige Spendenempfehlung: ab € 8.- 
 
-## Samstag, 1. Juni
-16°° - 18°° • Tango Technik- und Figuren Bazar
+Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
-Milonga ab 21°° Uhr  
-Lifemusik: “DOS y TRES” 
+Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
 
-## Sonntag, 2. Juni
-Tango – Frühschoppen,
-Ausklang …
+Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne Kommentar zurückschicken.
 
-## Vier Tage Tango außer der Welt, - in der Wirklichkeit, - in Eschelberg.
-
-## Keine Anmeldung! - Wer kommt ist da.
-
-Übernachtungsmöglichkeiten:
-
-• Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
-
-• Übernachtung im Garten (im Zelt) 
 
 Wir freuen uns auf Euer Kommen! 
 
@@ -48,7 +32,7 @@ Viele Grüße,
 
 Magnus und Eva Maria
 
-Freiwillige Spendenempfehlung: 30., 31. Mai ab € 10.- , 1. Juni ab € 20
+Freiwillige Spendenempfehlung: ab € 8.- 
 
 
 
