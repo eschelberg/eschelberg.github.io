@@ -17,8 +17,6 @@ Die nächste Milonga im Gartenatelier Eschelberg gibt es am
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
-Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
-
 Falls jemand diese mail nicht mehr erhalten will: bitte einfach mit oder ohne Kommentar zurückschicken.
 
 
