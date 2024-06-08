@@ -14,10 +14,6 @@ Die nächste Milonga im Gartenatelier Eschelberg gibt es am
 
 ## Freitag, 21. Juni 2024  ab 21°° Uhr. 
 
-Wir freuen uns auf Euer Kommen! Viele Grüße,
-Magnus und Eva Maria
-
-Freiwillige Spendenempfehlung: ab € 8.- 
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
