@@ -11,7 +11,7 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 ## Liebe Tanguerosas!
 
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
-## Freitag, 27. September 2024  ab 21°° Uhr. 
+## Freitag, 25. Oktober 2024  ab 21°° Uhr. 
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
 Magnus und Eva Maria
