@@ -29,5 +29,6 @@ Magnus und Eva Maria
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") 
 Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
+
 ![Titel](‎/files/tango/Don Giov.MVC91-16 21-01-29.jpg)
 
