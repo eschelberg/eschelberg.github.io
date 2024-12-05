@@ -10,7 +10,7 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 
 ## Liebe Tanguerosas!
 
-## Traditionelle Silvestermilonga am Dienstag, dem 31. Dezember 2024 um 20°° Uhr 
+## Traditionelle Silvestermilonga am Dienstag, dem 31. Dezember 2024 ab 20°° Uhr 
 Ende: irgendwann 2025
 
 Wir machen‘s noch mal! Auch dieses Jahr tanzen wir wieder ins Neue Jahr hinein 
@@ -22,6 +22,7 @@ Für Getränke Wein, Wasser, Tee, Café,…ist weitgehend gesorgt.
 Freiwillige Spendenempfehlung: € 10.- 
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
+
 Magnus und Eva Maria
 
 
