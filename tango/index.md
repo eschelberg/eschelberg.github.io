@@ -8,11 +8,6 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 „Tango Eschelberg“ ist eine private Non - Profit – Initiative. Tangofreunde aus aller Welt sind hier willkommen.
 
 
-<!-- ### Begin BoD ShopWidget -->
-<div id="bodShopWidget_3004110_print" class="bodShopWidget"></div><script type="text/javascript">if(typeof checkLibExist == "undefined"){var script = document.createElement("script");script.src ="//www.bod.de/public/js/bod/v1.1/shopWidget.min.js";script.type = "text/javascript";document.head.appendChild(script);var checkLibExist = true;}if(typeof books === "undefined") var books=[];books.push({"objID":"3004110","swKey":"b049b0f14113b8d5e96a87afaa08f71d","type":"print","size":"large","font":"nonSerif","shadow":true,"contour":true,"coverContour":true,"fontColor":"#000000","contourColor":"#000000","shadowBtn":true,"contourBtn":false,"bgColor":"#ffffff","btnFontColor":"#ffffff","btnColor":"#e84e0f","btnContourColor":"#e84e0f","shop":"de","mandantShopUrl":"https://buchshop.bod.de","lang":"de"});</script>
-<!-- ### End BoD ShopWidget -->
-
-
 ## Liebe Tanguerosas!
 
 ## Traditionelle Silvestermilonga am Dienstag, dem 31. Dezember 2024 ab 20°° Uhr 
