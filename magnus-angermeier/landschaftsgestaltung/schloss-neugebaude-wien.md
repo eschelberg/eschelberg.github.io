@@ -16,5 +16,8 @@ Im Auftrag des Vereins zur Revitalisierung des Schlosses Neugebäude entstand 20
 
 Die Arbeit wurde veröffentlicht in der Zeitschrift "ARX Burgen und Schlösser in Bayern, Österreich und Südtirol" Heft 2/2005. 
 
-[Download als PDF](/files/magnus-angermeier/landschaftsgestaltung/Neugebaude_Bildtext.pdf)
+[Artikel als PDF](/files/magnus-angermeier/landschaftsgestaltung/Neugebaude_Bildtext.pdf)
+
+[Pläne als PDF](/files/magnus-angermeier/landschaftsgestaltung/Neugebaude_Plaene.pdf)
+
 
