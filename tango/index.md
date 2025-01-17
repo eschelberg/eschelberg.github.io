@@ -26,4 +26,4 @@ Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reing
 Dazu anrufen unter <a href="tel:+436641205541">0664 1205541</a>. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
 
-![DonGiov](/files/tango/Don_Giov.MVC91-16_21-01-29.jpg)
+![Tango1](/files/tango/tanac 4602 post3.jpg)
