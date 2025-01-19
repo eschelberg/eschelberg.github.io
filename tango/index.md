@@ -20,7 +20,7 @@ Wir freuen uns auf Euer Kommen! Viele Grüße,
 Magnus und Eva Maria
 
 ## Vorschau
-Die XX Eschelberger Tangotage finden dieses Jahr voraussichtlich am Fronleichnamswochenende vom 19. bis 22. Juni 2023 statt.
+Die XX Eschelberger Tangotage finden dieses Jahr voraussichtlich am Fronleichnamswochenende vom 19. bis 22. Juni 2025 statt.
 
 Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") 
 Dazu anrufen unter <a href="tel:+436641205541">0664 1205541</a>. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
