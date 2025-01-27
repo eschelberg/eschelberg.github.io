@@ -29,7 +29,8 @@ Dazu anrufen unter <a href="tel:+436641205541">0664 1205541</a>. Stichwort "Tang
 ![Tango1](/files/tango/TB12_248.jpg)
 
 
-In eigener Sache:
+
+## In eigener Sache:
 
 Am 18.Jänner 2025 erhielt ich eine Re-mail auf meine Milongaankündigung für Jänner:
 
