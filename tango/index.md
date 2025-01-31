@@ -51,9 +51,6 @@ Wer ist hier am Werk? - Ist es die Gestapo des NS-Regimes oder die StaSi der DDR
 Und:
 Wer ist dieser „Freund“ und Schnüffelspitzel, der verständlicher Weise nicht genannt werden will oder kann? Sehr fein kann seine Nase nicht sein, - vielleicht riecht sie von Innen nach außen…. Kann so jemand ein Freund sein?
 
-Und:
-Warum ist die FPÖ so schlimm? Wo sitzen denn die Verbrecher, die in der Coronazeit das Grundrecht hundertfach gebrochen haben?
-
 ## Zur Beantwortung dieser Fragen:
 
 1. In meinem Leben habe ich noch nie politisch gewählt, mit einer Ausnahme, - das war in den 70er Jahren als ein Freund von mir bei einer Regensburger Gemeinderatswahl für die Grünen kandidierte, die damals noch wirklich grün waren, nämlich ökologisch und pazifistisch, was heute leider ins Gegenteil pervertiert ist.
