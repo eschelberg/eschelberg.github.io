@@ -11,7 +11,7 @@ Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – M
 
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am
 
-## Freitag, 21. März 2025 ab 21°° Uhr.
+## Freitag, 16. Mai 2025 ab 21°° Uhr.
 
 Wir freuen uns auf Euer Kommen! Viele Grüße,
 
