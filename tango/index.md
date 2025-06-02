@@ -51,7 +51,9 @@ in der Wirklichkeit, - in Eschelberg.
 Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
 
 Wir freuen uns auf Euer Kommen!
+
 Viele Grüße,
+
 Magnus und Eva Maria
 
 ![Tango1](/files/tango/TB12_248.jpg)
