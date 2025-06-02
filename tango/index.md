@@ -16,7 +16,7 @@ Bei schönem Wetter: Grillerei
 ## Freitag,  20. Juni
 16:00 - 18:00 • Tango Technik- und Figuren Bazar
 
-ab 21:00 • Milonga 
+21:00 • Milonga 
 ## Live-Musik: 	Oscar Ovejero: Gitarre und Gesang
 ## 		& Compagnions: Gitarre, Bandoneon
  
