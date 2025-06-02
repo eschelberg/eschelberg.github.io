@@ -10,6 +10,7 @@ weight: 1
 18:00 • Ankunft und gemütliches Beisammensein
 Bei schönem Wetter: Grillerei 
 
+
 21:00 • Milonga Musik Magnus
  
 ## Freitag,  20. Juni
@@ -24,11 +25,13 @@ ab 21:00 • Milonga
 
 21:00 • Milonga 
 Musik Joachim
- 
+
+ 
 ## Sonntag, 22. Juni
 • Tango - Frühschoppen
 • Ausklang ...
- 
+
+
 ## 20 Jahre Tango in Eschelberg! 
 • Keine “Workshops” - kein Workshop - Stress !
    dafür gibts einen Technik- und Figurenbasar
