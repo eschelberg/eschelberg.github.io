@@ -4,26 +4,49 @@ layout: page
 weight: 1
 ---
 
-Jeden zweiten Freitag finden (seit 2003) im Gartenatelier Eschelberg Tango – Milongas statt. 
-„Tango Eschelberg“ ist eine private Non - Profit – Initiative. Tangofreunde aus aller Welt sind hier willkommen.
+## XX. Tangotage Eschelberg 2025
 
-## Liebe Tanguerosas!
+## Donnerstag,19. Juni
+1800 • Ankunft und gemütliches Beisammensein
+Bei schönem Wetter: Grillerei 
+2100 • Milonga Musik Magnus
+ 
+## Freitag,  20. Juni
+1600 - 1800 • Tango Technik- und Figuren Bazar
+ab 2100 • Milonga 
+## Live-Musik: 	Oscar Ovejero: Gitarre und Gesang
+		& Compagnions: Gitarre, Bandoneon
+ 
+## Samstag, 21. Juni
+1600 - 1800 • Tango Technik- und Figuren Bazar
+2100 • Milonga 
+Musik Joachim
+ 
+## Sonntag, 22. Juni
+• Tango - Frühschoppen
+• Ausklang ...
+ 
+## 20 Jahre Tango in Eschelberg! 
+• Keine “Workshops” - kein Workshop - Stress !
+   dafür gibts einen Technik- und Figurenbasar
+• Kein Stilfanatismus - wir spielen klassische, 
+   moderne, Neo- und Nontangos - 
 
-Die nächste Milonga im Gartenatelier Eschelberg gibt es am
+• Zum Grillen: Fisch, Fleisch oder Gemüse nach Belieben mitbringen. Für Getränke (Wein, Wasser, Tee, Kaffee) ist gesorgt.
+• Keine Anmeldung - Wer kommt ist da.
+ 
+Freiwillige Spendenempfehlung: Milonga am 19. und 21. Juni: ab € 10.-
+Milonga mit Lifemusik am 20. Juni: ab € 20.-
 
-## Freitag, 16. Mai 2025 ab 21°° Uhr.
+Vier Tage Tango außer der Welt, -
+in der Wirklichkeit, - in Eschelberg.
+Übernachtungsmöglichkeiten:
+Übernachtung im Garten (im Zelt) oder: Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
+Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
 
-Wir freuen uns auf Euer Kommen! Viele Grüße,
-
+Wir freuen uns auf Euer Kommen!
+Viele Grüße,
 Magnus und Eva Maria
-
-Freiwillige Spendenempfehlung: ab € 10.-
-
-Vorschau:
-
-Die XX Eschelberger Tangotage finden dieses Jahr am Fronleichnamswochenende vom 19. bis 22. Juni 2023 statt.
-
-Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 
 ![Tango1](/files/tango/TB12_248.jpg)
 
