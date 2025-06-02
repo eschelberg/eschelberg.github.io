@@ -7,19 +7,19 @@ weight: 1
 ## XX. Tangotage Eschelberg 2025
 
 ## Donnerstag,19. Juni
-1800 • Ankunft und gemütliches Beisammensein
+18:00 • Ankunft und gemütliches Beisammensein
 Bei schönem Wetter: Grillerei 
-2100 • Milonga Musik Magnus
+21:00 • Milonga Musik Magnus
  
 ## Freitag,  20. Juni
-1600 - 1800 • Tango Technik- und Figuren Bazar
-ab 2100 • Milonga 
+16:00 - 18:00 • Tango Technik- und Figuren Bazar
+ab 21:00 • Milonga 
 ## Live-Musik: 	Oscar Ovejero: Gitarre und Gesang
-		& Compagnions: Gitarre, Bandoneon
+## 		& Compagnions: Gitarre, Bandoneon
  
 ## Samstag, 21. Juni
-1600 - 1800 • Tango Technik- und Figuren Bazar
-2100 • Milonga 
+16:00 - 18:00 • Tango Technik- und Figuren Bazar
+21:00 • Milonga 
 Musik Joachim
  
 ## Sonntag, 22. Juni
