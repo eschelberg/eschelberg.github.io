@@ -9,16 +9,19 @@ weight: 1
 ## Donnerstag,19. Juni
 18:00 • Ankunft und gemütliches Beisammensein
 Bei schönem Wetter: Grillerei 
+
 21:00 • Milonga Musik Magnus
  
 ## Freitag,  20. Juni
 16:00 - 18:00 • Tango Technik- und Figuren Bazar
+
 ab 21:00 • Milonga 
 ## Live-Musik: 	Oscar Ovejero: Gitarre und Gesang
 ## 		& Compagnions: Gitarre, Bandoneon
  
 ## Samstag, 21. Juni
 16:00 - 18:00 • Tango Technik- und Figuren Bazar
+
 21:00 • Milonga 
 Musik Joachim
  
