@@ -4,11 +4,9 @@ layout: page
 weight: 1
 ---
 Liebe Tanguerosas!
+
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
 ## Freitag, 11. Juli 2025  ab 21°° Uhr. 
-
-Wir freuen uns auf Euer Kommen! Viele Grüße,
-Magnus und Eva Maria
 
 Freiwillige Spendenempfehlung: ab € 10.- 
 
