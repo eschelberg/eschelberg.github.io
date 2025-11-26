@@ -17,8 +17,6 @@ Es gibt wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reing
 Auch im Schloss Eschelberg gibt es wieder eine Übernachtungsmöglichkeit. 
 Dazu anrufen bei Mara: Tel.: 0650 5903807
 
-
-
 ## Vorankündigung:
 Traditionelle Silvestermilonga am Mittwoch, dem 31. Dezember 2025 ab 20°° Uhr
 Genaue Ankündigung folgt noch …
