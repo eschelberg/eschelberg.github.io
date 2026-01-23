@@ -22,7 +22,7 @@ Auch im Schloss Eschelberg gibt es wieder eine Übernachtungsmöglichkeit.
 Dazu bitte anrufen bei Mara: Tel.: 0650 5903807
 
 ## Vorankündigung
-Die XXI. Eschelberger Tangotage finden dieses Jahr wieder am Fronleichnamswochenende vom 4. bis 7. Juni 2026 statt.
+Die  XXI. Eschelberger Tangotage finden dieses Jahr wieder am Fronleichnamswochenende vom 4. bis 7. Juni 2026 statt.
 
 ![Tango1](/files/tango/Don_Giov.MVC91-16_21-01-29.jpg)
 
