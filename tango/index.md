@@ -24,7 +24,7 @@ Dazu bitte anrufen bei Mara: Tel.: 0650 5903807
 ## Vorankündigung
 Auch heuer finden die XXI. Eschelberger Tangotage wieder am Fronleichnamswochenende vom 4. bis 7. Juni 2026 statt.
 
-![Tango1](/files/tango/TB12_248.jpg
+![Tango1](/files/tango/TB12_248.jpg)
 
 
 
