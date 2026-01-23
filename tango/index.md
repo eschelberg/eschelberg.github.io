@@ -10,7 +10,8 @@ Die nächste Milonga im Gartenatelier Eschelberg gibt es am
 
 Freiwillige Spendenempfehlung: ab € 10.- 
 
-Wir freuen uns auf Euer Kommen! 
+Wir freuen uns auf Euer Kommen!
+
 Viele Grüße,
 Magnus und Eva Maria
 
