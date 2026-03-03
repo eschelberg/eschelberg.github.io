@@ -6,7 +6,7 @@ weight: 1
 Liebe Tanguerosas!
 
 Die nächste Milonga im Gartenatelier Eschelberg gibt es am 
-## Freitag, 6. Februar 2026  ab 21°° Uhr. 
+## Freitag, 6. März 2026  ab 21°° Uhr. 
 
 Freiwillige Spendenempfehlung: ab € 10.- 
 
