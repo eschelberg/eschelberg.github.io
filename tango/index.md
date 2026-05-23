@@ -31,12 +31,15 @@ ab 21:00 • Milonga
 • Ausklang ...
  
 ## 21 Jahre Tango in Eschelberg!
+
 • Keine “Workshops” - kein Workshop - Stress !
    dafür gibts einen Technik- und Figurenbasar
+   
 • Kein Stilfanatismus - wir spielen klassische, 
    moderne, Neo- und Nontangos - 
 
 • Zum Grillen: Fisch, Fleisch oder Gemüse nach Belieben mitbringen. Für Getränke (Wein, Wasser, Tee, Kaffee) ist gesorgt.
+
 • Keine Anmeldung - Wer kommt ist da.
  
 Freiwillige Spendenempfehlung:  ab € 10.-
