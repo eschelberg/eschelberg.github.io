@@ -26,9 +26,7 @@ ab 21:00 • Milonga
 „Wenn Ihr tanzt, hält die Hand den Fächer, und der Fuß macht einen Schritt.
 
 Wenn Ihr dabei nicht alles vergesst, wenn Ihr Euch in Gedanken zurecht legt, wie Ihr die Hände und Füße zu bewegen und richtig zu tanzen habt,
-
 kann man Euch nicht als guten Tänzer bezeichnen. Wenn der Geist in den Händen und Füßen verweilt, wird nichts, was Ihr tut, wirklich gut sein.
-
 Wenn Ihr vom Geist nicht vollkommen absehen könnt, gerät Euch alles nur einigermaßen.“
 
 Meister Takuan (nach 1600) in: „Die Kunst des kampflosen Kampfes“*
