@@ -46,7 +46,9 @@ Freiwillige Spendenempfehlung:  ab € 10.-
 ## Das Reich des Tangos ist nicht von dieser Welt.* 
 
 Wir freuen uns auf Euer Kommen!
+
 Viele Grüße,
+
 Magnus und Eva Maria
 
 ## Übernachtungsmöglichkeiten:
