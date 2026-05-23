@@ -50,7 +50,7 @@ Viele Grüße,
 Magnus und Eva Maria
 
 Übernachtungsmöglichkeiten:
-Übernachtung im Garten (im Zelt) oder: Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
+Übernachtung im Garten (im Zelt) oder: Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 Neu!! Auch im Schloss Eschelberg gibt es wieder eine Übernachtungsmöglichkeit. Dazu anrufen bei Mara: Tel.: 0650 5903807
 * Die Zitate sind meinem Buch Tango Essais entnommen
 
