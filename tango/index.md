@@ -9,20 +9,22 @@ weight: 1
 ## Donnerstag, 4. Juni, Fronleichnam
 18:00 • Ankunft und gemütliches Beisammensein
 Bei schönem Wetter: Grillerei 
-2100 • Milonga 
+
+ab 21:00 • Milonga 
  
 ## Freitag,  5. Juni
  “Die Mehrheit ist immer da wo die Mehrheit ist.”* 
 
 16:00 - 18:00 • Tango Technik- und Figuren Bazar
-ab 2100 • Milonga 
+
+ab 21:00 • Milonga 
 
 ## Samstag, 6. Juni
 16:00 - 18:00 • Tango Technik- und Figuren Bazar
 „Wenn Ihr tanzt, hält die Hand den Fächer, und der Fuß macht einen Schritt. Wenn Ihr dabei nicht alles vergesst, wenn Ihr Euch in Gedanken zurecht legt, wie Ihr die Hände und Füße zu bewegen und richtig zu tanzen habt, kann man Euch nicht als guten Tänzer bezeichnen. Wenn der Geist in den Händen und Füßen verweilt, wird nichts, was Ihr tut, wirklich gut sein. Wenn Ihr vom Geist nicht vollkommen absehen könnt, gerät Euch alles nur einigermaßen.“
 Meister Takuan (nach 1600) in: „Die Kunst des kampflosen Kampfes“*
 
-2100 • Milonga 
+ab 21:00 • Milonga 
  
 ## Sonntag, 7. Juni
 • Tango - Frühschoppen
@@ -51,7 +53,7 @@ Magnus und Eva Maria
 Übernachtung im Garten (im Zelt) oder: Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan (ehem. "Reingruber") Dazu anrufen unter 0664 1205541. Stichwort "Tango", das ist wichtig, da andere oft nicht angenommen werden.
 Neu!! Auch im Schloss Eschelberg gibt es wieder eine Übernachtungsmöglichkeit. Dazu anrufen bei Mara: Tel.: 0650 5903807
 * Die Zitate sind meinem Buch Tango Essais entnommen
-Weitere Informationen unter: http://eschelberg.net/tango/  am besten immer kurzfristig nochmal prüfen!
+
 
 
 ![Tango1](/files/tango/TB12_248.jpg)
