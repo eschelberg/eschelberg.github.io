@@ -24,6 +24,7 @@ ab 21:00 • Milonga
 16:00 - 18:00 • Tango Technik- und Figuren Bazar
 
 „Wenn Ihr tanzt, hält die Hand den Fächer, und der Fuß macht einen Schritt.
+
 Wenn Ihr dabei nicht alles vergesst, wenn Ihr Euch in Gedanken zurecht legt, wie Ihr die Hände und Füße zu bewegen und richtig zu tanzen habt,
 kann man Euch nicht als guten Tänzer bezeichnen. Wenn der Geist in den Händen und Füßen verweilt, wird nichts, was Ihr tut, wirklich gut sein.
 Wenn Ihr vom Geist nicht vollkommen absehen könnt, gerät Euch alles nur einigermaßen.“
