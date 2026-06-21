@@ -26,7 +26,6 @@ Es gibt gelegentlich wieder eine Übernachtungsmöglichkeit im Gasthaus nebenan 
 Auch im Schloss Eschelberg gibt es wieder eine Übernachtungsmöglichkeit. Dazu anrufen bei Mara: Tel.: 0650 5903807
 
 
-
 ![Tango1](/files/tango/TB12_248.jpg)
 
 
