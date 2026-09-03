@@ -12,8 +12,10 @@ Auch jüngere Weiber sind herzlich willkommen!
 
 Freiwillige Spendenempfehlung: ab € 10.- 
 
-Wir freuen uns auf Euer Kommen! 
+Wir freuen uns auf Euer Kommen!
+
 Viele Grüße,
+
 Magnus und Eva Maria
 
 
