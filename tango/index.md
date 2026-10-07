@@ -8,7 +8,6 @@ Liebe Tanguerosas! Am
 
 ## Freitag, dem 16. Oktober 2026  ab 21°° Uhr  
 laden wir Euch zu der Milonga im Gartenatelier in Eschelberg ein. 
-Auch jüngere Weiber sind herzlich willkommen!
 
 Freiwillige Spendenempfehlung: ab € 10.- 
 
